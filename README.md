@@ -1936,6 +1936,8 @@ I kept walking. Miles. Moments. Lifetimes. Until I found a spot in the dunes. No
 
 ‘Maybe I’ll realize it was all wrong, but what if I don’t try it, and I never find out either way…’
 
+> > 
+
 Breathing in the end of day, I looked at the sky. Always what it returns to. Me and the sky.
 
 I want a healthy community, I want relationships built upon sustainability.
