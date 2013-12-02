@@ -51,48 +51,6 @@ We came to the conclusion that our enjoyment couldn’t be brought about by our 
 
 I didn’t know what to expect. All I knew is that I would be riding along the coast for a few weeks, and, due to my aversion toward the whole capitalism thing, there would probably be more than a few opportunities to be creative as far as acquiring food and amusing ourselves went. As it turns out, to guess that this would be one of the most fun times of my life would still be an understatement.
 
-# Drugs And Daydreams
-
-***
-
-### Acknowledgements:
-
->My sincerest thanks and fondest embraces to those who have been there along the way – from the creation of the stories to the creation of this book…
->
->Please contact the author at:
->
->Post Office Box 1282
->
->Fullerton, California 92836
->
->Disclaimer[s]:
->
->This is work of fiction.
->
->[However] Don’t believe everything that you read.
-
-***
-
-###      Contents:
-
-> Part I. Drugs And Daydreams
->
-> Part II. Here Civilization Ceased
->
-> Part III. Bring On The Dancing Horses
-
-***
-
-## Drugs And Daydreams
-
-***
-
-I don’t know when it was, or even why, but somewhere along the line, my sense of patience just disappeared. I just don’t have the tolerance for all of the structure in the world around me. Here I am, a couple years out of high school, and I’m seeing too many of my friends choosing to continue school or go to work. Maybe they enjoy it, but all of their whining would lead one to guess otherwise. If high school taught me anything, it’s that spending my time and energy trying to appease other people is something I’d never like to do again.
-
-We came to the conclusion that our enjoyment couldn’t be brought about by our passive entertainment, but by creating it wherever we go. A bicycle trip? What better way is there to explore places I’ve never been before? Of course I was down for it.
-
-I didn’t know what to expect. All I knew is that I would be riding along the coast for a few weeks, and, due to my aversion toward the whole capitalism thing, there would probably be more than a few opportunities to be creative as far as acquiring food and amusing ourselves went. As it turns out, to guess that this would be one of the most fun times of my life would still be an understatement.
-
 I knew The Captain well enough before the ride to know that he was always down for a little mischief. That’s pretty much what our crew, the Monster Squad, was all about when we’d take to the streets of Portland for nights filled with petty crime, and, every now and then, some not-so-petty crime. So with only an atlas of the US, a book about west coast bike routes, a couple phone numbers and a little cash, we hit the road. Traveling is always more fun when you are unprepared.
 
 ---
@@ -1246,3 +1204,839 @@ We tried. We had our goals, our intended destinations, distances to cover. In th
 
 ### Sweet Rosemary And Steel
 
+I woke up early and set off into the building, flashlight in hand and a feeling of vertigo from the sheer size of the labyrinthian halls, the multiple wings and adjoined church left eerily empty and bathed in dust and stained-glass light, and so much detritus from its past lives as a community center. On the third floor was the main room, lined by open windows whose glass had been removed, now letting light, noise and breeze flow lushly throughout the room. Most other windows in the building were boarded up, allowing in only a small sliver of light through the triangular wedges cut from the bottom of each plywood sheet. This made nearly every room dark, menacingly silent, and possessed of so many odd and curious details of which one could mine a litany of scenarios and theoretical explanations for.
+
+On the lower floors were the large performance theatre and basketball court. Chairs were scattered about the floor, a painted set remained standing on the stage, and a tall laddered-platform on wheels sat in the middle of the room. It was hard to know if these all were left in careless abandonment or if they were the remains of some squatter-party, as Bowery Manor at once appeared to be both the elegiac remnants of a once-bustling community space forced out by the city of New York and a boundless playground for those who stumbled upon the shell, determined to breathe life back into it. Unfortunately, the building being closed off meant that it was illegal to be anywhere on the property, and anyone coming or going from inside Bowery Manor had to be aware of any police or HPD presence around the building. Thus, besides the metal door installed by the kids and secured with chains and padlocks, the first floor also had a large metal beam wedged between the stairs and the rollgate, the only accessible entrance to anyone who did not want to squeeze through the sledgehammered hole beneath the tarp or climb through a second story window.
+
+Debris lined the floor nearly everywhere you looked – phone books, paper, clothes, boxes full of completely useless objects, nearly any imaginable functionless item could probably be found somewhere on the floors or shelves or in the drawers or in any of the other nooks and crevices in the building. In some rooms, you were not stepping on any floor at all but on the slippery and unstable mountains of old magazines, computer equipment, kitchen tools, CD cases. The swimming pool in the basement was filled to an even six inches below the brim, not with water but with junk.
+
+Spraypaint covered the walls leading up the stairs. The next floor up had an isolated bathroom with an old bathtub that had come to be used as the building’s piss tub, and, as the plumbing still drained, the room didn’t smell as bad as one might assume it would. The wall-to-wall mirrors in the large dance studio cast startling reflections of flashlight at all angles. In the middle of the hardwood floor were the wardrobe racks, still full of the sequined and showy costumes. On the floor, also, was a box of old photographs, paper stained and ink browned, of dancers and performances this room had seen in decades past.
+
+Upstairs was a maze of catwalks and rooms turned into bedrooms. A bar stood amid the debris of a damaged and half-collapsed roof on the wing that lined 1st Street. The shit buckets sat atop a quiet corridor, beside the buckets of sawdust to neutralize the smell and near a window out to an unused square of rooftop where the retired shit buckets were left.
+
+I swiveled around in the cluttered emptiness, it was mostly the scent of forgotteness and neglect that hung in the air. I imagined how these hallways must have felt when this building was an active school and community center, when children staged performances in the large open rooms and the kitchen was warm with meals being prepared, and the huge chain-link cage enclosure covering the rooftop was for games being played across the sprawling roof and the pool wasn’t the eerie darkened echo-chamber it was today.
+
+> There are ghosts here.
+
+Back in the kitchen, Ox was awake. Music crackled from the cassette player in his room beside the kitchen. An old friend, over spirulina smoothies he told me about having helped find and open Bowery Manor, about the sporadic police raids, giving a subtle laugh at their inability to seal the building off, and about the coming autumn in New York – people planning on coming through town and upcoming events. When the cassette came to an end, that light bulb flickered just a little brighter until the tape was flipped and the ‘play’ button hit again.
+
+---
+
+Horns blared. Pedestrians stepped into the street, then back onto the sidewalk, then back into the street. A sea of yellow taxis and articulated busses ebbed up to the curbs. Car horns everywhere, the lullaby of this city. Traffic was at a standstill, and the two of us on bikes weaved in and out of lanes, into oncoming cars, across sidewalks. Red lights and one-way signs merely a caution, the same having to be acknowledged for green lights and bicycle lanes. Accelerator or brake are always on the floor. It seems these consistent jolts of frantic movement and motionlessness are what keeps everyone in a unity of flow. Bicycles, on the other hand, are powered by pure adrenaline.
+
+In a city with so many eyes, it seems impossible to find solitude. No one here is modest, though there seems to be a safety in the complete openness. For what can surprise a person or a city who has seen it all? Everything is tolerated, nothing is any worse than what just occurred a couple blocks away. 16 million eyes, yet they never meet when passing. A safety barrier for people to blend in. Locked doors line the sidewalks in a city that never sleeps, never blinks. But wouldn’t this catch up with you?
+
+The Captain and I rode to NYU where his scammed student ID card granted us entrance to the school’s computer labs. We crossed Washington Square into a din of sirens, and arrived at the library to find it closed by police, the building evacuated, and everyone standing outside, some angry, some quiet. Someone had jumped from a 12th story balcony inside the building, a suicide. They were whisked away in an ambulance.
+
+The city doesn’t blink.
+
+A woman rushes up to a man standing next to me. She hugs him, crying.
+
+Someone on his cell phone across from me says, impatiently, ‘I don’t know. This is bullshit.’
+
+16 million eyes with blank stares and impersonal glances.
+
+We sit down on a park bench. The park, surrounded by highrises, itself more concrete than green. Everyone owns a phone. Everyone walks the streets in conversation with someone who isn’t there, a ghost at the distant end of a satellite. Everyone has the ability to transcend space, physicality. It seems that with so many people passing each other on the streets, the only words exchanged are with those not there. Distance has no relevance, presence has no relevance. Not here.
+
+16 million eyes and they all possess blank stares.
+
+---
+
+I sweep out the mechanical room atop the elevator shaft. The only room in which one is forced to walk across the roof of Bowery Manor to get to. My doorway is perched eight feet above the rooftop, requiring one to make use of the steel ladder protruding from the wall to get inside. The mechanical room has a skylight with a bird’s nest nestled in one corner of the outer side. I spend a fair amount of time carrying a smaller mattress up from the lower floors, and stuff some sheets also found downstairs into my bag to take to the Laundromat the next time I leave.
+
+The machinery atop the elevator shaft sits beside me, a large metal pulley wound with thick steel cords. The elevator is silent, nonfunctional, and if you stand on the grating atop the shaft in the daytime, you can look down several floors to the elevator sitting motionless between the first and second floors.
+
+I choose not to run any electricity up here. The skylight and open doorway let the daylight in, and the night light-noise of the city cast enough of a glow for me to navigate my way. I make a plan to steal candles for when I want to read.
+
+I decorate the walls with objects found inside the building: grainy black and white photographs, Donna Summer and Human League record sleeves. Then sit on the doorway ledge, looking at the lofts along the Bowery. I christen my room The Crown.
+
+---
+
+The sushi dumpster at closing time, the meeting spot each night for those who find their food from the excesses of the city.
+
+‘It’s not a dumpster, it’s an event.’
+
+A while after closing, the workers would bring out their trash to lay on the curb, and then hand out bags of the sushi rolls and wraps that had not sold, always thoughtfully kept separate from the actual trash and nicely bagged. While we ate, kids wandered up two, three, six at a time. A nightly gang of squatters, punk kids and assorted others who would set off on the restaurants, bagel shops, and health food stores concentrated in this part of lower Manhattan.
+
+One grocery store had set out several crates full of ice cream, which upon digging through provided a few cartons of soy ice cream – still frozen. By now we were accompanied by a shopping cart that Holden kept padlocked to the street by day, but now had a radio blasting pop punk while he pushed its contents of fruit, vegetables, pizza, pastries, and electronics that had been scavenged during the evening’s walk.
+
+Several of us split off to head to a gourmet health food store in Soho.
+
+After sifting through their bags, while waiting for everyone else to catch up, we were looking at the graffiti of a building across the street. The walls were painted along the ladders and balconies of the fire escape, several floors up. Next to this building was another building that towered above every other building on the block.
+
+‘We should climb the fire escape,’ I said. The Captain, thinking I meant the smaller building, didn’t express too much interest. Then I pointed to the taller building next to it.
+
+‘We should climb it,’ Zelda said. We crossed the street. The ladder at the bottom of the fire escape was held just out of reach by a hook. I jumped and grabbed the bottom rung, then started pulling myself up, legs dangling, until I was able to swing my feet up to the balcony, unlocking the ladder and lowering it for Zelda who came up after me.
+
+The two of us ran upwards, crossing diagonal stairs, horizontal balconies. Out of breath, creeping by lit up windows with tenants consumed with their dinners and laptops. No one seemed to notice us. We finally got to the last short vertical ladder that took us to the roof. At the top I looked over the side. A breeze blew across the roof, through my hair. We stood above most other surrounding buildings. Sitting on the edge, legs hanging 14 stories above the city, no grips other than the flat tarpaper roof. Everyone below a tiny figure from these dizzying heights. Each draught of wind would make my teeth clench with a rush of tiny bolts of fear, a simultaneous repulsion and urge to give myself to the fall. Zelda simply looked down and laughed. A devilish laugh. One of a familiarity of nights ruled by straddling the edge of limits.
+
+Inches before us, just one wild gust of wind away, a fall that would unquestionably render ones body into a pulverized state, but around us the lights of all of Manhattan. The spires of the Chrysler Building bathed in golden glow above, the Empire State Building rose like a compass point. In the other direction, the financial district, the lights of lit windows standing above us, spread out beneath us. New Jersey’s skyline rising from the further bank of the Hudson. Turn around again, the columns of the Manhattan Bridge, lights running along its cable trestles, a line of white lights next to a line of red lights of traffic in perfect line to our perspective. 
+
+We walked across the roof, climbing atop the water tower, which, itself, stood two stories above the roof. The top of this building was flat, with a ledge on which to lean, to take in the varied topography of the grid canopy of Manhattan. To connect rooftops would give you a varying surface that would look like the surface of a stormy sea.
+
+She turned to me and said it was moments like this that she wished she carried a flask of whiskey in her garter. I was in awe of the city from this angle. Underneath us. As canyons rather than walls. As stepping stones rather than sheer facades. I was in awe of her. Of someone who could so easily, so eagerly, stand at the building’s edge, walk to the fringe of the plank simply for the thrill of it, spitting inhibitions to the wind, or rather, down the side of a highrise.
+
+From down below we heard the whistles and yells of the others. They echoed up the building, fading into the noise up here. 
+
+We cling to the recesses of the city. A mountain that the city can’t climb. There was no rush. Even if they were calling us back down. The wind was soft, the city at our feet. We were above it now. Running recklessly on a cloud of steel and silence. Laughing. Screaming. Breathing.
+
+---
+
+I return to Bowery Manor. It’s a Friday night, and rather than continuing on with the night, I’ve decided to get some sleep. I expect the building to be empty, but am greeted by Valencia, a girl who also grew up in the same area of California as I did, who has been staying at Bowery Manor as well. We talk about the mutual people and places we know from our pasts, and I cut up a plate of fruit for us to share.
+
+Rather than sleeping, we go running through the building, gathering and moving more items for my room – candleholders, a dresser, a desk and a chair. With her help, we lift everything up the flights of stairs, across the open rooms, and into the crown. The room begins to look inviting, and we climb up, light the candles, and sit while the breeze floods through the doorless threshold. The flickering flames and old machinery throw off unimaginable shadows, and the chipping yellow paint glows in animate texture.
+
+I walk to the doorway. The city below bustling on a Friday night. But I’ve found my space now, away from the empty gaze of the 16 million eyes. My space where I can sit with a stranger in the candlelight, removed from the governance of clocks and time, and talk away the end of another day.
+
+---
+
+I carry these maps while wondering how to stage a jailbreak from their deception.
+
+The journal pages written here, the shoeboxes of grainy photographs taken with disposable cameras, only make linear and underwhelming the convergence of so many coincidental explosions, the way the photo album is guilty, over time, of replacing the memory it seeks to preserve.
+
+Inside any given city there are countless more.
+
+Is it possible to be infatuated with a place with the same sort of feeling that one could be taken with a person? That one could bare his or her vulnerabilities or questions to a place and expect a response? Can one find in different locales an independent and unique set of filters of introspection and [self] reflection in the way that the visible blue of daylight varies so greatly across separate geographies?
+
+In my own life, I notice that recalling specific events leads me to remember them as being during the period of a certain relationship, or during the time of living in a certain place, as if the timeline of my own memory is marked by these two infatuations.
+
+A story is told as much by what is absent as it is by that which is present. A map as revealing by that which is omitted.
+
+I want to undo the damage of the maps; to be able to place more emphasis on being than understanding.
+
+Could we find this place we’re told is the sole arena of lovers in the world around us?
+
+***
+***
+
+### Autumns And Dusks
+
+I open my eyes. Sleep is light when you risk arrest for it.
+
+Stars swim over half the sky, keeping watch on those not yet touched by dawn’s indulgence. Atmosphere of cobalt fade into pink. With squinted eyes and sleeved layers unable to keep the full breath of cold out, Artemis and I walk to the stone wall that separates sleeping town from salty shore and sit upon its misty ledge.
+
+Bar Harbor. Mount Desert Island. The continent’s edge.
+
+At moments like this it’s easy to feel a tiny intruder stumbling accidentally upon scenes of such ungraspable grandeur. Face to face with the ocean’s infinity, as the wave of transition sweeps across the heavens, as if for a few fleeting moments the world makes visible its soul.
+
+On this stone ledge, the two of us are the only people to be seen.
+
+Slowly the sky turns to light. The still-invisible sun turns a corner of the sky a rich orange and red of ripe mangoes, illuminating more wholly the shore below us. Jagged rocks hold the smell of kelp and the still collected puddles left by the retreating tide. Birds hop upon rocks, picking at the crevices of land’s craggy hem. 
+
+A few lights of nearby inns still gleam in the near distance, at the hidden end of the footpath we’ve broken off from that winds to and then disappears behind spruce trees and red berry vines.
+
+One string of my family traveled to this continent, leaving, only a couple generations back, from a volcanic island in the Mediterranean Sea. Another branch crossed the border and took up residence in what was, at the time, the lush, arable and predominantly Mexican neighborhoods not far from the heart of downtown Los Angeles. A couple of my only memories of my relatives are a great grandmother who never learned to speak English and a grandmother who would constantly sit me on her lap and read books to me from the shelves of her apartment in her coastal city. I was born in a city whose hills look down over the expanse of the ocean, and, facing in the opposite direction, at the snow-capped line of mountains that rise like a command over the landscape. When I was younger, I would frequently walk away from my classes and ride my bike to these hills. And, later, out of the city altogether and into, both, mountains and beach.
+
+The geological and meteoric forces that we ingest through the food that we eat, the air that we breathe, I believe it shapes us as much as any amount of nurture relationships can.
+
+I realize now that upheaval and tumult is literally the food that my family ate and the air that they breathed, that it was constantly present in the geological forces that shaped their land, in the cultural imaginations of every stop along the path of their displacement, first from having to adapt to a new country so near and so far from their own, and then see that new home change even more and their new culture swept away by a flood of urbanization. The air smelling of the tumultuous landscape ripe with ocean winds and wildfires being the oxygen that went into the lungs and blood of my childhood.
+
+I’ve been accused by those close to me of needing extremes in all facets of my life. And I know that I’m drawn to the transitional, the unstable. The autumns and dusks, the mountains and coastlines, the pursuit more than the goal, and the risks more than the temperances. But I feel that, just as the salmon keep with them their way back to the river forks of their births, somewhere inside of me is held a deep-rooted comfort in the spaces of geological and cultural upheaval. 
+
+---
+
+The musty sherbets lengthen over the horizon. A deep voluptuous pink appears in the clouds that drift from the south. And soon there are no stars. They’ve become engulfed too, by the dawn.  Their cue to rest for the day. And the currents in the water have lost their cloak of dark, the restlessness of the water’s vast motion of peaks and valleys swirl below. It’s day now, on the edge of this atlas, at the tip of Maine.
+
+I’ve heard addiction defined as habitually carrying on an action past the point of there being negative consequences for that action. But, if you can excuse the oversimplified definition, wouldn’t it follow that this would apply to inaction as well? For instance, if one’s inaction permitted greater negative consequences to occur than if one were to act in a way to minimize or halt altogether those consequences, wouldn’t that inaction be a sign of unhealthy choices?
+
+We leave Bar Harbor, following the road as it leaves the water’s edge and begins to weave through birch and spruce groves. Groves whose leaves tint the beams of sunlight a golden green. Groves who spread, dense, into infinity on either side of the road. It’s still early in the morning.
+
+The road climbs into the air, until we look down upon those trees from arid heights, then descending again along granite edges of road until we’ve come back to a sandy beach. I sit on the shore and let the ocean mist blow across me.
+
+Like so much noise, we set out to find the frequencies that others tend to ignore, that convention has cast aside. Having fully embraced punk, first as a music scene, then as a scene that encouraged one to create their own set of ethics, to dream huge and make creative use of your resources to get there. Artemis climbed the rocks toward the water. Over the previous years we had cooked house meals from food that had been cast aside by the giant health food stores of our city, or from the greens and berries that grew throughout our neighborhood. We had ridden our bikes through the nights, sneaking into high school and apartment complex pools, refining our methods of looting food from chain stores and otherwise avoiding work as much as possible in order to spend our time volunteering at the infoshop. Over time, things began to change. Artemis had got a boyfriend and would dedicate more and more of her time to the gardens not only in the backyard, but now in the front as well, and discuss entering into an apprenticeship in carpentry.
+
+I had become tired of the direction that my city was changing, feeling that the sleepy feel and inclusive scene was growing far more pretentious and exclusive, overrun by people who had no respect toward the communities and neighborhoods they were moving into and altering the character of, and I was ready to leave Portland, Oregon behind.
+
+It was with this that we put our squeaky bikes into boxes and left for the far side of the country. 
+
+Huge rocks shelter calm tide pools. Breaking waves crash onto rough stone, sending white foam into the sky. We veer past parked cars and tour busses congregating in parking lots and ride up the gravel carriage trails that climb into the interior of the island. Pine trees now line the sloped forest floor and scent the air. In the interior, we come upon only a few people, trading smiles as we pass. We stop to eat beside a lake.
+
+The ecology of sea and cool air has been replaced by a hot afternoon in a dry mountainous landscape. From here one could no longer see the ocean, only the peaks of the surrounding rim. Now wearing only a t-shirt, eating the wild apples we had picked from the trees, my eyes are caught by a bird that flies out over the lake. A bald eagle. I take another bite from the apple, and consider, for a second, the chance atlas that has replaced the emptiness of the maps.
+
+---
+
+It wasn’t clear if I followed you or if you followed me. But I would have traveled further if not for the promise I had made to meet a friend in Rome. That last morning, I watched you walk out. Then run back one last time.
+
+They’re funny, the maps. The fluid plotted out as absolute. We carried different ones, and in private I asked the constellations to deliver my messages for me.
+
+The letters I wrote you are still there, time not having washed them from the walls completely. But words are to be lived, not written and read. 
+
+I would leave the words to sit, until the day when you might read them, until the day when our maps would overlap.
+
+---
+
+We should have known what the night held when we walked to the secluded bay and were swarmed upon by dinner-hungry mosquitoes. Or when on the first trip carrying bikes and gear down from the road I was stung in the hand. And then I nearly slipped walking down through the wet grass.
+
+The spot was a finger of sand that would keep us afloat above the high tide. We considered sleeping inside one of the boxcars a short ways down the tracks, but decided that we more wanted to just lay down at the nearer of the two and let sore legs and sunburnt skin recover.
+
+They were so persistent that we gave up on eating and, instead, climbed inside our sleeping bags. Bug spray didn’t deter them, and zipping myself completely into my bag made me so uncomfortably hot. Their presence was a constant high-pitch buzzing in our ears. We didn’t feel all of them, nor always felt them in time. And if we did swat some of them, there were always more.
+
+This seemed like it went on for hours, this suicidal battle against the clouds of mosquitoes, and at whatever sleep-deprived hour I had just begun to fall asleep, I soon awoke to raindrops falling on my sleeping bag.
+
+Artemis and I set up her tent in the dark, exposed to the ceaseless mosquito swarms, and crawled inside. Listening to the tent covering fly off and flap around in the wind, falling asleep, finally, to the rain falling through the mesh and onto our faces.
+
+Morning, and rain gear on.
+
+After a few miles it becomes clear that the storm isn’t just a passing burst.
+
+A few more miles and our shoes are soaked through and our maps are shredding.
+
+A ways further, as we ride down a hill on rain-slicked streets into a town, my rear brake cable snaps. Late afternoon, we sit on the stoop of a business shuttered for the season, out of the rain for a moment. We decide to rent a motel room for the night. It doesn’t feel like a relief, it feels like accepting defeat.
+
+He was a shipbuilder in the City of Ships.
+
+Walking beside him, he seemed to know everyone in that town. Greeting those he passed smiling warmly as he introduced us, and then apologizing to us as we continued on. Though these interruptions were so good-humored and genuine, it endeared us to him even more.
+
+He had approached us as we sat on that stoop, pathetic after the day’s downpour with our snacks of vegetarian chili straight from the can, and told us we were welcome to stay at his home. A moment of hesitancy. Always a moment of hesitancy. Skepticism: where fear and habit have taught to distrust until proven otherwise. We consciously wanted to avoid those traps. For a moment we wondered if this could be another one. What kind of upside down culture creates an atmosphere where a distancing instinct from others is the survival impulse over seeking bonds with those same strangers?
+
+We locked our bikes to a rack and drove with him away from the downtown and onto the backroads. His name was Aerie. He told us that he had been in the navy years ago, and now builds ships.
+
+‘This town really took off during World War II. At the time we manufactured more destroyers here than were manufactured in all of Japan. About one every two weeks. The docks were working 24/7.’ And now? I asked.
+
+‘It takes about two years to make one from start to finish. This town now averages about 1¾ ships a year. They still christen them with a bottle of champagne. Until a couple of years ago they were launched the old-fashioned way, where they were built on a ramp and then the day came and the ship was pushed down the rails. The whole town would come out for that, take pictures. It was an event. Now, though, the ships are lowered into the water. It’s like watching snow melt. People still come out, but it’s not the same.’
+
+He told us that he and his wife, Celeste, had crossed the country on motorcycles, and were helped by the kindness of strangers. Since then, he and his wife have taken every opportunity to offer their own help to those who might need it.
+
+His home was nestled into the woods, a view of the ocean through the trees. He and his wife had plans that evening to cook a dinner for their daughter and her partner, and for his wife’s aunt who was visiting from Baltimore. His wife immediately hugged us. She would be happy to add some veggie burgers to the meal.
+
+The bedroom we’re led to is full of Naval awards, college degrees, shipbuilding honors, and books. Books on gardening, several F. Scott Fitzgerald volumes, books on feminism, a collection of books about several different religions and spiritualities.
+
+Over dinner they told us about their home, their past, their lives. I’m touched by their connection to their place. To this landscape and its rhythms. They can speak of their appreciation for it, accepting its faults, acknowledging other cities and seas, but the feeling one is left with when all the words have been spoken is their happiness with where they are and for whom they’re with.
+
+In the morning, on the drive back into town, Aerie presents to us the town through his own eyes. A map of the city redrawn. The YMCA that he volunteers at, the ship manufacturing dock. The most unassuming corners of the town become landmarks.
+
+‘That shop is where Celeste’s parents met each other. It was a drugstore at the time. And about 20 feet away, beneath that storefront right there,’ he pointed, ‘is where I met Celeste.’
+
+Soul unravels from brick and stone.
+
+He left us at our bikes, said goodbye, hugged us. We were in awe.
+
+As I recall this, I still am.
+
+There is a rhythm that envelops you on a long bike trip.
+
+A moment where the day before feels like it took place in the distant past, and the road ahead of you no longer looks menacing or hard, nor the mountains daunting.
+
+The movement of legs feels as if it takes place separate from the rest of the body, propelled by a simple muscle memory, as the mind dwells upon all nature of thoughts with trancelike fecundity.
+
+Like the swelling sea, with its surface of white crests, peaking simultaneously, and disappearing, only to move with unpredictable clamor into and from other ephemeral summits.
+
+The mind is free to wander – to daydream scenarios and conversations, to reconstruct the past and make wishes for the future. 
+
+And the climbs, the blood rushes your heartbeat to the ends of fingertips, and the drops, where the wind blows intensity into your lungs and back out watery eyes. And your bike nearly an appendage to be exercised as any other limbs that carry you through the fields.
+
+The past another lifetime, the elements all in reach and the endless array of directions on the road ahead, simply, what is.
+
+We veer from highway 1 to take the meandering roads nearer the coast. Mist hangs on my eyelids, rolling down my face when I blink. We pass a lake, still, reflecting in perfect clarity and unbroken stillness the copper and rust trees that surround it.
+
+Copper and rust. We slowly come closer to the edge of the state. The slow-moving trains that frequently crossed our path, like the leaves swept from the trees by autumn breath and thrust into dance across quiet roads. Wooden buildings shuttered at the side of the highway – some, we’re told, will reopen in summer, or when the radiant fall brings the tourists, but others will not, and the chipped paint and decomposing facades will remain, marks of an ecology where serenity is a more dominant force than economy, until taken, finally, by time.
+
+We trace the shore, the road elevated from the breakwater barrier lining the sea’s edge. A storm has sent the waves crashing wildly into the rocks, throwing spray completely over the two-lane road. We have to avoid vines of kelp lying prone in the road. A heavy fog rolls across the water, rolls across those who have come here to watch the force of the storm, rolls across our sweat-stained clothes and day-worn skin, and we continue, in low gear and ecstatic spirits, to make our way south.
+
+The sun drops behind clouds in the western sky. Light breaks in spears through the textural heavens, traces the outlines of purple atmosphere in neon. Between the infinite night and us only the opaque cascade silhouette of Cape Cod. Boston lies in the dusk at our backs.
+
+It will be dark when our ferry pulls into Provincetown harbor. The accumulated dizzyness of the past weeks having lost any anchorage to a perceivable sense of time.
+
+***
+***
+
+### A Field Guide To Trespassing
+
+When evening came to the city, we swept out the basketball court in the lower floor of Bowery Manor. As usual, there were a handful of people in the squat that night, and with a few extension cords running up to the next floor (no doubt dimming the light for whoever may have been in the kitchen), we had an indoor basketball game lit by floodlights and a radio playing NWA and Crimpshrine tapes. There were kids enough for two teams – east coast against west coast – with a rotating bench stocked with Ballentine’s 40s and dumpstered fruit juice.
+
+It was this way that the night grew late, a few of us ended up in the large main room upstairs sitting around the candlelight, the cool summer air blowing through the large open windows high above our heads. A flask of gin was passed around, and in the flickering light we could make out only each other as everything else faded to a darkened background that made the rest of the room feel a forest. A revelous delirium of heavy eyes and intoxicated laughter. The air smelled of the euphoria hours of a late summer night along with the musty presence we came to know were the disaster-histories emanating from the time-drenched walls and crevices of this reclaimed castle.
+
+The question arises, ‘if there were no capitalism, what would we replace it with?’
+
+I consider the friends with whom we cook up elaborate meals inside steamy kitchen windows, with whom we share bottles of wine made from the pomegranates grown on backyard trees, whom teach each other how to gather the Echinacea that grows wildly near our home and then put it into tinctures to battle the colds that can creep in, or the strangers who have pulled over and let a strange kid standing roadside with a poorly written sign that says ‘ANYWHERE’ into their car.
+
+‘That’s the amazing thing about the punk scene,’ a new friend passing through town told me, ‘you can go anywhere in the world and have a place to stay and someone to talk about records and travel stories with.’ I know the feeling well. Though I’ve also heard of NASCAR and Star Trek fans talk of similar communities.
+
+It seems that people are already engaged in a system of exchange outside of capitalism. That the generosity that occurs amongst people who feel a certain sense of community, sometimes even amongst strangers, is something currently happening. 
+
+Capitalism has been successful in dividing communities, in creating identifications with abstract clusters of people based on common (consumable) interests, but has distanced the attachments between those within the immediate vicinity. To replace capitalism, one must rid themselves of the idea that a global market that views all life outside of its immediate interests a resource is more desirable than a web of communities made up of all life.
+
+In replacing capitalism, I think that I would simply get rid of the idea that time and rivers and interactions and human and non-human communities can be summed up in quantitative statistics on a screen, and then get rid of those screens altogether. That would be a good start.
+
+We were soon on the roof looking out over the financial district, speaking of the ghosts of Bowery Manor. That there was an intensity in this building was something that was felt by everyone who stepped inside. That these walls teemed with life, had stood silent sentry through recitals and dances, spiritual worship and battles against city agencies intent on shutting it down, had left an energy that none of us could interpret, but that was felt, that blanketed the nights and held silent post in those hallways we stepped through. Those pasts that we will never know, all of those coincidences and actions that bring us to this slightly unsettled night. There are ghosts here. It was all I could do to think that nothing would excite me more than to surround myself with those passionate enough to live their lives this way, with all of the energy and electricity of storming the gates of the off-limits world and making it into the geography of our own design.
+
+The dawn light first changed the color outside, reflecting off of the puddle that had made a moat of the roof at the bottom of the steel ladder leading to the crown, entering the room through the doorway and falling through the skylight. Everyone had gone to sleep and Zelda and I lie in the sheets together. We didn’t need the candlelight now. Her curled black hair and blue eyes, metallic as an arctic dawn, were all visible, her smile pierced the morning calm.
+
+She breathed recklessness. Zelda of the devilish grin. Zelda of the suckerpunch. Sheets became tangled. Her presence like a tornado, like movement that can upturn calm. For a moment you find yourself at the eye of the storm, the briefest view of a world teetering precariously on the brink of disaster. And the next that storm has taken you, and all that is explainable is also swept up, swirling through the air, a world upside down. Until the storm has passed, and the calm seems otherworldly. And one must look around and decide how to navigate the altered topography.
+
+Only the uncontrollable is constant.
+
+When we woke up it was 2pm. My face reflected in her eyes. Her lips soft now. Manhattan echoed from below, hung in the hot seamy air that breezed through the room, causing the large still elevator cables to creak in the shaft below the grate. We had cast the sheets aside. Out on the roof, beyond the moat, the sunlight wavered off of black tarpaper. Slowly we got up, thumbed away the heat from each others’ faces, found our clothes, and went downstairs for a breakfast of dumpstered tofutti ice cream.
+
+With whom do we identify?
+
+I may say that I love the sea, the wild bison, the rivers whose waters I’ve spent days floating on and whose banks I’ve spent nights lying in, eerily amazed at my own insignificances reflected in the vast skies above. But would I defend them as unflinchingly and vigorously as I would a family member or anyone else who I loved?
+
+The language I speak is weighted with the baggage of not merely human-centric thought, but urban-centric thought. As if civilization, industrialism, interaction
+
+mediated by machines, the freer and greater flow of economies are all not only to be accepted, but promoted, believed in as progressive movement, equated with well- being and accomplishment.
+
+But, once again, I wonder where that mutually enriching relationship is that my friend spoke of that night. How much of urbanism, of economies, of something so basic as the gathering and preparing of food, occurs in a way that benefits, rather than exploits, those other communities with whom we share the world with? Is it fair to refer to these separate species, forests, bodies of water as other communities? Or is that revealing our perceived independence from what, in total, forms what simply is our community .
+
+I wondered this, on another morning, as I sat at my desk just inside the doorway in the crown to write a letter to a friend a continent away. The room’s thick brick walls keep a cool air inside while the warm day blows in gusts through the doorway and the crack in the skylight. My quiet space, adjusting slowly to a day well into progress in the busy streets below.
+
+It was as I was finishing the letter that I heard the pounding.
+
+‘You can’t go back.’
+
+This is the response from anyone who champions this idea that equates economic productivity with human progress, that equates capitalism with freedom, that anyone who has come to accept industrial civilization as the only way, even if that is not merely unsustainable but completely destructive to every community it touches, including human communities, including every person inside those communities.
+
+The pounding echoed up the elevator shaft and into my room. Strange, but rarely was there not some strange sound or ambient occurrence emanating from the invisible mazes of Bowery Manor if one remained quiet within its walls. I wondered what in the building someone would be hammering. But the pounding was persistent, growing even harder, and I realized that someone was trying to get in from outside.
+
+I rushed down the ladder from the crown, jumping over the rooftop moat, and hurried down the stairs to the lower floor, until I stood atop the first set of steps, watching the empty beer bottles that rest atop the steel beam buttress wedged between the rollgate and the inside stairs rattle and move slightly with each deafening hit against the other side of the gate. On the other side, voices speaking to each other between hits. Though the rollgate didn’t open up to the street, but to the hallway of an adjoined apartment building. It wasn’t likely these were some kids or junkies just trying to get into an abandoned building. Whoever it was was obviously pretty intent on getting inside the squat.
+
+The infrastructure upon which industrial cultures exist on a day-to-day basis is responsible for poisoning the water that we, and everyone, depend on, for poisoning the air that we, and everyone, depend on, for poisoning the land that we, and everyone, depend on. What threshold must be crossed before we aggressively fight to defend it? What communities must we witness being affected – the trapping and slaughtering of the last purely wild bison, the rivers dammed and polluted by industrial agriculture runoff, our families, or those we love, ourselves – before we defend ourselves? Before we defend our community?
+
+I ran through the downstairs floors to warn everyone I could find. The Captain’s room was empty. Ox awoke with a groan and gave a mumbled response. Valencia and Carolina rose quickly from their loft beds below the large main room’s open windows. Though most people who had actually taken rooms in the building found the more hidden rooms in the more elusive wings, and even in the time I had been there, I had still not learned where everyone was living. When I heard the pounding stop with a final crash, I took the further stairwell to the basement to find a place to hide.
+
+From the flashlight-lit hallways, a level beneath the rollgate, I heard the steel beam pushed aside and voices consulting one another. I came to a room I had never been into before, one whose doorway was obstructed with a near-solid pile of loose-lying doors, broken beams, discarded heaters, sinks and desks, and I wedged myself through the small gap that remained of the doorway.
+
+I turned off the flashlight and listened to the footsteps proceeding cautiously through the building’s cold halls and up flights of stairs. To metal being pushed aside and the indecipherable crackle of radios.
+
+Why isn’t the perspective, rather, ‘we can’t go forward; taking more from the land than is put back, believing that the mentality that brought us here will somehow stop or alter its own trajectory, expecting a healthy reciprocity while the culture surrounding us acts petulantly and destructively selfish’?
+
+I turned off my flashlight and squatted in pitch darkness behind a large metal tank. I let my eyes adjust and saw that the room I was in held all of the building’s furnaces and the pumps for the basement swimming pool. The room connected to another room even further back, one beneath the church whose doors faced 1st Street. The room’s only light fell through locked grates in the sidewalk above.
+
+I walked back into the furnace room and sat. I happened to have climbed into the room directly below the door that we had used to enter and leave the building, and could make out bits of the conversation between the HPD officers speaking to each other directly above me. Words about us having put on our own locks and chains.
+
+In the darkness I heard voices and radio crackling coming down the staircase, then saw traces of light as flashlight beams entered the basement. I knelt as quietly as I could behind the base of a large metal tank that concealed me from the doorway. The voices stopped outside the doorway, and the flashlight beam slowly scanned the wall behind me. With held breath and deafening heartbeat that I was sure would give myself away, the beam moved across the furnace just inches above my head. I traced the light with my eyes, noticing the uneven shadow edge cut into the beam by the large bolts atop the tank that hid me. And then the beam left, the voices stepped away from the doorway, and dark enveloped the room once again.
+
+I walk along the river, its banks a series of concrete piers, weathered structures. The same is present on the opposite bank, where a city skyline touches down. I realize that I couldn’t even imagine what this landscape looked like when it was a healthy ecosystem. I’ve never known intimately a landscape untouched by civilization – the forests I’ve lived within are second-growth, the river I’ve lived beside no longer has communities of salmon so thick that you could walk across them as the passed down stories go, the desert I’ve lived in possesses its mining scars seemingly no matter how deep you venture into its patient expanses.
+
+I wonder of history’s zero-point and the role perspective plays in it. How our understanding of an event is created at the moment we enter it, and the past tends to be obscured, unknowable.
+
+Above me I heard the hauling in of materials, the tools going to work to barricade up our entrance. And then there was quiet. I stayed in that room for a while longer, crouched in the darkness trying to listen for anything that might tell me if they were still inside the building.
+
+After some time passed, and a long period of silence on the floor above me, I got up and crept toward the door as quietly as the fallen metal, dirt, and broken glass running the length of the floor would let me, treading an obstacle course of creaks, cracks and scrapes, stopping on occasion and turning off my flashlight to listen for any movement in the building. I ran up the staircase and to the ladder leading up to the crown. I gathered my journal and unfinished letter, then hung from the ladder and peeled back the chain link fence to stand on the edge of the roof, jumping a gap onto the rooftop of the next-door building, walking into their roof access door and walking down the stairs, until coming to the floor and the city workers who carry tools from their truck parked on the street through the hall and into the momentarily stilled walls of Bowery Manor.
+
+Looking at these industrial riverbanks, realizing that I am more familiar with a synthetic world than a sustainable one, that I am more familiar with unhealthy relationships and cheapened perceptions of community than I am with thriving, functional ones, realizing that I may never know what it is to live confident in a healthy ecosystem to its fullest potential, I think that there is no question in my mind that, in hindsight, these conditions should never have come to exist to begin with. That, with the clarity of hindsight, it’s become clear that those who could have toppled the viaducts that allowed for agriculture to have altered the gathering-hunting cultures into a more sedentary way of life, one that in turn required more land, more resources, more specialization, more necessity of defense against neighboring societies or appropriation of resources from those neighboring societies, should have. And that, later, those who could have refused the economy of the industrial revolution should have. And those who could have used any power in their means to put an end to the belief that one could act in ownership of other human beings on the plantation system should have.
+
+And today, standing within a culture that will see every tree cut, every bit of gold mined, and every person on this planet thrust into a synthetic environment, desensitized and infected with cancer, I hold no doubt for a second that each person with a means to challenge this in any way possible must.
+
+With whom do we identify?
+
+Of course you can’t go back. Is a person who fights cancer attempting to regress? Or are they attempting to rid themselves of that which hinders their growth?
+
+Time is cyclical. We push forward, carrying our lessons in an accumulated wisdom. I don’t believe that progress is based on the refining of an inherently destructive pattern, but rather is movement in a direction away from the destructive tendencies, the power games, the short-sightedness; in a direction where all of those present can make each other into healthier and more thriving beings.
+
+---
+
+The Gold Coast, where the drivers talk of god and weed. Where we compete for rides with sleeping fugitives. While others bring us firewood and tell us of the stones that these waves wash up.
+
+We breezed out of the old cannery as casually as we breezed in – and on the street, in the newspaper vending box, read the headline that Reagan had died.
+
+With the two cans of paint we found, we spread the news.
+
+Another season brought us together – a halfway point inhabited by javelinas and saguaro and the cities that gold had left behind. Train whistles could be heard through the night. The momentum too fast to slow down, at least without crashing.
+
+Another season and another goodbye. Another train whistle and then we were going in different directions. It would be some time before I found my way back to Esperanza.
+
+---
+
+That night, a few of us will walk back to Bowery Manor. Certain that they had bricked up our entrance, we come into the building through a different entrance – the garden entrance along Houston Street.
+
+We had come from a gathering at one of the Lower East Side’s radical bookstores, where one of the city’s older and more well-known squatters had presented some of his art; intricately drawn slides accompanied by a harmonica, telling the story of a girl who had come from the wild into the gritty mechanizations of the city, ending with her and others facing the towers, cranes, and tanks, carving out a space within the steel landscape where her group was able to live and prosper amongst each other.
+
+Tonight the building seemed unusually quiet. As if missing were not only the laughter and the smells of meals being cooked on the kitchen hot plate, but the feeling that anything could happen which this building had come to possess. The equally likely possibility of walking up the stairs to find a dance party in full wardrobe going on in the kitchen to that of seeing an old friend from a different corner of the country sitting amongst others on the roof.
+
+I’ve always believed that a smarter security system will only create a smarter person willing to get around it. That the passionate and determined can always find a way to beat those to whom stopping them is merely a job.
+
+We looked for any damage. The kitchen was untouched, the electricity still wired to the neighbors’ elevator shaft and functioning. Downstairs, we saw that they had carved out part of the frame in order to get in through the rollgate, and that they had begun to build a new brick barrier over our entrance. But there was still a large enough space for us to get in through. And beside their work they had also left a pretty substantial box of tools, which would not be there upon their return. The worst actual signs that they had been inside at all were a few knocked over shelves in bedrooms, and the five kids still in jail with trespassing charges.
+
+We immediately began coming up with ideas to re-secure the building – welding the rollgate to the foundation, moving into more hidden rooms. It was Saturday night, and we could assume that we were safe until Monday.
+
+That night I slept on the loft in the large main room, with two large windows open to Houston Street at my feet, and all night I could hear the traffic outside in crestfallen contrast to the unusual hush inside. There was a nervousness in the air inside the building, as some of the others had begun finding different places to stay until things could cool off. It was probably about time, I thought, to continue on my way down to Florida.
+
+The passing days would bring dinner parties in Brooklyn, crashed NYU events, and fake-unicorn meat at the vegetarian restaurant in Chinatown. When the five of our friends were released from jail following the raid, we took them to a café on Avenue B, our group filling up several tables inside. Zelda and I had plans to sneak into Fame on Broadway, but too often found it impossible to leave Bowery Manor under any type of time constraints, and often, when we did, ended up becoming caught up in racing around the city’s shadowy edges, or stopping in the gritty bars and diners open all night, endlessly amused at the contrasts of so many pasts and cultures all coming to an intersection in this city. The perversities and wealth, the desperation and excess, and the spectacle and redefined notions of convention that come together here. We compare memories and stories, of what a lawless carnival many parts of the city had been in the past. That government-by-chaos is still there, but recent efforts to clean up the streets and the city itself have moved that lawlessness out of the visible city, deeper into the darkened corners and behind closed doors. In a geography where highrises are constructed by bankrupt billionaire businessmen, lower east side hipster bars overrun what was once tenements for the poorest of the city’s poor, and family entertainment complexes sit upon the piers that were once the abandoned edge of the city – the no man’s land where New York’s fringe populations gathered, schemed, cruised, shot up or wandered to find relative solitude in this city of blank stares.
+
+We sought refuge in the 24-hour taqueria that we shared with the couple of others who came in at the relative-quiet hours. The woman working came to know our order without having to ask us and didn’t mind that we drank from our flask at their wobbly and sticky tables. Still we couldn’t help but wonder for how much longer this taqueria could last in a city where the grittiest of neighborhoods were always the next to be preyed upon by developers, constantly speculating on other peoples’ lives, forcing more and more people out of the city and into the outer boroughs. Or we looted food from the Whole Foods, the sign that a neighborhood was now safe, a watermark of a well-off yuppie population and the visible corner of a disappearing page.
+
+Each night, it was the sun rising over Brooklyn and the East River that brought the chaotic traffic to the streets and sidewalks, that reflected off of empty wine bottles at our feet in East River Park, that marked the last legs of the trash collectors’ runs and signaled our time to haul our bags of produce, bagels and occasional vegan deli sandwiches that we had just pulled from those trash bags back to Bowery Manor. To try to get a little bit of sleep before being roused by the opportunity of the new day.
+
+Between kisses we spoke in whispers. The quiet broken only by her cackling laugh. The single thing that is unforgettable of Zelda is her smile – the way her teeth show, how her eyes light up, the tops of her cheeks rising and the corner of her eyes squinting, giving her smile a conspiratorial glow. Devilish. And even more beautiful in the light of a candle.
+
+She asked me to describe Las Vegas to her, taking a particular interest in the Paris. Saying that she’d love to get a job wearing a button-up white shirt, short black skirt, fishnet stockings and heels. 
+
+‘Do they have a job where you just walk around? Maybe I could be a cigar girl.’ She said she’d settle for a cocktail waitress, and that she’d live in a trailer at the edge of town, driving her convertible to work each day.
+
+I’m attracted to her because I can’t keep up with her. She’s always running wild ahead of me. I hold her in my arms and still grasp for more, for the chaos of her. We talked and grasped one another until the sun rose, and the light of the crack in the window drowned out the flickering candle. I was planning on sleeping but by now I should know better. When she is around there is no sleep.
+
+The room was cold, the missing glass providing no barrier from the dawn air. We held each other tighter. Quiet caresses and kisses underneath the one blanket that we did have. Finally we slept, though with me waking after only an hour or so. She continued to sleep quietly. Her breathing gentle, her lips slightly parted and relaxed, this being the only time she wasn’t wearing that grin. I lay back down, she wrapped her arm around me. In the next few days I will leave this. She told me that her relationships are intense, and then die. Mine tend to be the same. I can only hope that this one may reach its full intensity before I leave. Then maybe I won’t be tempted to continue chasing after her, trying to keep up with someone who may be attainable, but is untouchable.
+
+***
+***
+
+### From The Ground
+
+We awoke in the Foss Woods, near the tip of Cape Cod. Coming out of sleep to the sun falling into an air illuminated by the sea, and rising to pack our clothes and bags back onto our bikes. Then, leaving our bikes leaned against a tree, we walked deeper into the woods.
+
+I’ve heard of people riding coast to coast on bikes in just over a month’s time. I’ve seen people clad head to toe in the swankiest gear, following the routes plotted out on cycling association maps, riding bicycles costing what I can live off of for months. I realize that I don’t really understand what exactly the desire is that motivates these cyclists.
+
+It is the sensation of becoming lost and vulnerable that we chased. Setting off on questionable bikes with state road maps and simply an idea of our destination – everything would be determined along the way. Maybe we’d get there – when you have all the time in the world and a bike underneath you, you tend to move in the direction that you want to go. We chose to follow the smaller roads, the thinnest of the gray lines on the map. But if someone on the way suggested a road we might like, or a town that might be worth visiting, or even a particularly scenic lake, most often we would abandon any other ideas and follow their directions. Maybe we would ride miles out of our way to find a simple covered bridge, or find ourselves on a gravel road alone beside a mountainous lake as a bald eagle swoops from the higher branches of a nearby tree. Maybe we’d find ourselves waiting at a Laundromat for the older couple who told us to sit there for a few minutes, and then left, returning before too long with fig bars and coffee which we shared sitting outside the storefront on creaking wooden benches while talking about their approaching winter migration to Florida.
+
+Traveling on bikes isn’t so much about a destination as it is casting out into the world without the enforced separation and isolation of a windshield, without the speed of an engine that turns the endless complexities and wild stories of the landscape into a silent film reel. And without the distraction of so much noise of the city’s mundane entertainments and media barrage, the abstracted, disregarded, or even entirely forgotten world outside of your own reveals itself to be the unbroken community that urban culture so meekly tries to re-create.
+
+At the end of the woods was the shore. Long grasses gargoyle-still in the morning air, needle-leaf trees edging the sand. It has caught us each by surprise; that we’re here, at the tip of Cape Cod. For it always rest in the back of our minds – that the rain would come and maybe we’d just hitchhike until we were in sunnier climes, or that my $2 bike would decide that one of these hills would be its last. But here, at the edge of the shore, the giddiness of the whole situation rose from somewhere within us. That as we stood at the land’s end, and the orange of the dawn gave way to the day’s lazy blue, as we laughed with each other and wiped peanut butter from each others’ faces, this was our lives. Let work and the cities and the illusion of control be damned. If we couldn’t escape capitalism, well we could still refuse to let it dictate how we spend our time. Somehow, we had climbed onto our bikes in Burlington, Vermont and made it here, to Provincetown. Maybe not far in terms of mileage, and not even comparable to some of those cross- country stories we’d heard, but today it was euphoric. There, on that small beach, it hit me that we had accomplished everything we had set out for.
+
+And maybe we would have to return to jobs and bedroom walls, even if we were able to minimize them and spend that time cooking meals from the wild harvests within our city or spraypainting the windows of a few particularly lame businesses. Until the day comes that we can watch capitalism fall, and live in reciprocity with the uncivilized elements rather than at war with them, these trips to reaffirm our own vulnerability, to walk amongst the systems that are larger, more healthy, alive, and far more sustainable than anything civilization has ever had the ability to construct, are the moments I will choose to engage in, the risk I’ll always take.
+
+Artemis and I looked at each other and considered our day for a second.
+
+‘Fuck yeah!’ we thought. ‘We’re going to the beach!’
+
+I see my breath, waves of steam in the morning air.
+
+Old County Road winds through the hilltops overlooking the shore, hardly wide enough for a single car. Though most of the traffic stays on the highway, and we have this silent ribbon to ourselves.
+
+The sun flickers upon the eyelids like a strobelight through the dense canopy of leaves. Sand and pine needles line the street and I notice the faint line in the grainy layer of sand left by Artemis’s wheels ahead of me.
+
+Waves crash in line. Birds walk across the shore leaving tiny imprints that wind and water will cover up later.
+
+Moments are endless but time is limited. How could we not spend our lives doing this? How could we accept the boundaries that are given to us, cooperating with the jesters that act as if what we’re given composes the entirety of what is.
+
+For years I’ve had an issue with the concept of ‘rights’. Feeling that for one to possess rights means that there is another in a position to grant or restrict them. That to demand or struggle for rights is to appeal to that outside authority for the luxury.
+
+The days bring rain. Pouring rain. Rain in buckets, that catch you when you’re not expecting it. One moment you’re riding your bike along the shore with pockets full of dumpstered party store toys, the next the sun has snuck behind a cloud and a shadow rushes over you, spilling itself on you before you can make a run for it.
+
+The nights bring 30 degree temperatures. The two of us and all of our gear nestled tightly inside a tent meant for one. We won’t fall asleep to the stars tonight, but to a tight space and a lingering odor of wet nylon. When the rain breaks, we hear the sounds of the highway. That highway that we jumped the fence to escape earlier in the evening – struggling to pass our bikes over the chain link fence before climbing it ourselves, walking across the surface of a closed bridge, one whose asphalt road had buckled into the air or fallen into the water, whose wood-plank pedestrian path had large gaps where the wood, too, had rotted and fallen.
+
+---
+
+> Those foxes returned to Esperanza. Illuminated by the firelight in which we made our meals, while the music of old pop standards played on the radio and you knew every word.
+
+> Have you ever stood on the brink of freefall, the contemplation of the drop something you have to force from your mind? I looked into the fire, paused, consequences by damned. The next moment broken glass lined the street and we ran into the darkness.
+
+> We lived in excess on the excess. There was fire in everything that we touched. When we awoke on the cliffs above the beach, and danced to bands that sang of revolution, and threw ourselves in abandon to the January ocean.
+
+---
+
+Over the fence signed ‘No Trespassing’, across the bridge falling nearer and nearer to collapse, over the moat left by the recent rains, and beyond the overgrown ruined foundations of a block wall stands a garden. One not plotted into rows or tended to by any gardeners, but an edge of development in recovery. Frail trees shoot into the air, and, below, are saplings and shrubs, growing at their will, breaking apart the asphalt that once lie here. 
+	At our entrance, the squirrels had raced off, across the mulch of downed wet leaves, or leaping onto branches. Now, inside our tent, we hear the dull thump of falling acorns.
+	Maybe it is that the trees and squirrels don’t want us here. Communicating our intrusive presence through the buckled bridge, the torn asphalt.
+	I think for a second that we don’t mean to trespass, that we’d prefer their company to that of the strip malls and roads. But the acorns continue to fall.
+	Through the trees we see the streetlights have come on. As though the cycle of night and day was nothing more than an inconvenient habit to overcome, if the night sky was absent of stars worth contemplating, absent of its own stories. A celestial garden also bound from view, padlocked behind a cacophony of city lights.
+	For these glances I will always leap the fence. Like the parrots escaped the cage that now fly in flocks over the city sky, or the mink broken free from fur farm pens that continue to live in the wild, I want to believe that people are capable of that too: of reading the stars as a language, the rivers as having wisdom to impart, and seeing the halogen lights and paved streets for the manacles that they are. That somewhere, held in synapse sensation and engram memory, we can remember what it is to be free from cages.
+	Another acorn drops. And now, again, so does the rain.
+	Maybe that is why the city has erected those fences across the bridge, and why the garden continues to bend the ground, until there is nothing left of the development. Maybe both know that those who identify with the stars and the saplings cannot simultaneously be the ones harvesting their food in supermarket aisles, that both cannot coexist in peace.
+	Tonight I lay silent, squeezed tightly into a tent under siege by the distemper of the feral garden, dreaming out loud of the day that we are part of the ecology rather than trespassers within it, quietly cheerful at each fallen bridge.
+
+---
+
+I sat on the steps of the Providence City Library. Artemis was inside checking her email. The sun hidden behind the brick and steel of downtown buildings. Chill air. Reading. A woman walks by. I smile. 
+	A few minutes later, the same woman walks out again. Another brief smile.
+	‘What was the book you were reading so intently earlier?’ she asks in a slow, slightly broken English.
+	‘Oh, it’s just a book of short stories by Jeanette Winterson.’
+	She asks about her and I offer what I know. Then she begins to ask about me…
+	‘Are you a student? A writer? Are you an actor?’
+	‘No. Uh, kinda. No.’
+	She begins to talk more, about her own writing. About a writers’ group she had been part of. About wanting to start another one.
+	‘Where are you from?’ she asks me.
+	‘The Pacific Northwest,’ I say.
+	‘Oh. I went to Seattle once…’ she starts off.
+
+With the absence of the walls, you don’t even need to ask; the stories find you.
+	Away from my own plans, obligations, in an unfamiliar town, one thing that comes easy is to sit and listen. Breathe in the air. The river. The curves of the streets, blinding sun, and sloped sidewalks.
+
+She has a Russian slur. Short and flat-nosed, white hair held out of her face with pins, clutching a bus pass in her hands. Talking. Telling me about her husband, her old job, her son, how she probably talks too much.
+	She tells me of her favorite short story, what she describes as the most beautiful passage she’s ever read, describing, simply, an apple tree blossoming. She says she’ll send me a part of the book that she’s working on, a novel of a Russian woman in the Thomas Jefferson era.
+	Her smile reveals brown stained teeth and accentuates the wrinkles around her face. Every part of the conversation leads her to recall another story: a hike across Vermont, a job in the language department of a university, Irish mythology, her own genealogy.
+	The sun sets, and the streets are busy with those getting their weekend night underway. Meanwhile, we talk about pomegranate trees and violets, and as the days grow cooler, springtime buds from the lips of this small Russian woman.
+
+---
+
+Less than a day’s ride from New London, Connecticut, and a ferry to the outer tip of Long Island.
+
+Picture it:
+
+Tired eyes that haven’t seen a full night’s sleep in a while now. Racing down the backroads, up the hills, tracing the contours, deeper into the maze of those deciduous forests.
+
+Thrust by momentum, propelled by excitement and the occasional tailwind. Sore legs that somehow drink from a bottomless well of energy. Wind whistling in our ears, blowing tears from watery eyes. Faster. Faster. 
+
+Through meadows and lakes, through the rustic colors of New England. Crisp air and chilled gloved knuckles gripping tightly to handlebars. Rushing, singing, absorbing. Those colors in the periphery. The season changes, pacing autumn on bicycles. We have all the time in the world.
+
+Near the mouth of the Thames River, past the old industrial downtown and the estate-looking homes nestled between the even-more-grand spruce trees, we came upon Ocean Park, an amusement park and shorefront pier stretching to either side of the ebbing cove. This time of year only a single table on the large café deck is occupied, and the sand holds only a couple families clad in sweatshirts and long pants. The length of the boardwalk has only a few walkers and joggers. Over the water one can see the town of Groton on the other side of the river, and Orient Point at the tip of New York’s Long Island peninsula.
+
+Pushing bikes along the boardwalk, past the silent waterslides that hover above the outdoor swimming pool whose turquoise waters have been overtaken by the gulls and from whose gutters grass grows. Past the boardwalk’s edge is a trail in the sand, one that leads to a grassy bluff beside a stream. It was here that we laid down our bikes and unpacked our sleeping bags.
+
+At our feet a stream that rippled through the wetland marsh and wove its way to the nearby sea. This evening, dinner was on everyone’s mind  - the fishermen who sat at the end of the rock jetty casting their lines to the sea, the larger fish in the stream who chased the schools of smaller fish, sending them shooting away in escape, shots of mercury exploding through the water’s surface, the feral cats who slyly tiptoed to the edge of the stream, sitting in wait for those fish to swim a little too close to shore. 
+
+The late afternoon sun melted the sky, the horizon a palette of electric pinks, fiery oranges. Liquid below reflecting heavens above. Mercury bullets still shooting out of the whispered notes of the restless water. Tall grasses rustling in the sands around us. And the whistles of the distant ferries bound for harbor islands are met by the cries of gulls and the din of ducks migrating over land’s end in v-formation. And finally, all has faded to a soft gray, the cradle of night.
+
+In the darkness the senses run wild as boars, and the subtle details are alit. The air’s sighing moisture, the softness of sand beneath your step. Imagination feasts on the world absent of hard angles and straight lines. The shore a seduction of varying colors that verge into dreams.
+
+I look out of my sleeping bag and the sand has become blue, colored by a moonglow so bright that its light penetrates my bivy sack.
+
+Our bikes cast shadow imprints on the uneven sand, as if viewed through water. I resist sleep and for a few moments look at the night sky dotted with stars, with the light of eons. 
+
+In this odd state of half-sleep, I wonder when the stars fell from sight. When people began to see predominantly in such narrow terms. Where ‘vacant’ is the description affixed to any place devoid of man-made constructs, and ‘empty’ used to describe landscapes mostly inhospitable to human habitation but whose rhythms are of the most dramatic imaginable. The past literally builds upon itself, layer over layer. But we tend to see only the most recent past and imagine that it is the story of forever.
+
+I seek perspective in the blind spots, definition in the history-narratives not yet succumbed to the melting pot wave of cultural inertia. Resistant to ideas of adulthood where it seems so clear that it is adults who glance at the sky and see merely stars. I dwell on the explorers – who feel most comfortable in the unfamiliarity of the world beyond their vision – that look to the sky and see a compass, indigenous people who see a history of the world, children who see wishing objects, runaway slaves who see a map to free spaces, and singers make these stars the subjects of songs that impart longing, nostalgia.
+
+Friends of mine from the middle states often say that leaving the stars was the hardest thing about moving to coastal cities. 
+
+Occasionally I have moments where I don’t take it all for granted. I think of how impossible-seeming it all is. And I walk flashlight-off through forest trails, stopping in the dark, looking at the wedge of the sky visible through treetops, and the stars say to me that only the impossible is worth the effort.
+
+Here, beneath the heavens, near the continent’s edge, is the lighthouse, built when economy surpassed celestial navigation, and time signatures were needed to compensate for the expanded world. Built upon a stone island, each solid wall of its three stories facing a true compass point. Tonight it remains dim.
+
+Ocean vessels are guided by GPS now. And the lighthouse remains a relic of a time before physical location was seen as a set of coordinates pinpointed by satellites, or when one could step through a doorway and, hours later, re-emerge through that same doorway continents away.
+
+That relic rusts now, patiently ebbed away into the uppermost layer of the past. An ebbing away of memory of a time when faith was not placed entirely upon personal pocket-sized industrial technology. Will be absorbed by the sea that holds sunken ships and mountains past, who has come to possess the geography of glacial ages and the footsteps of those who stood at its edge only a few hours ago. The tide will take both away, out to the sea that carries the secrets of the past, as well as the reflection of the night’s starry skies.
+
+Tomorrow we will take the ferry to Orient Point. Beginning our ride across Long Island, to JFK Airport where Artemis will board a flight back to Oregon, and I will meet a friend in New York City.
+
+But tonight…
+
+I close my eyes and the stars don’t disappear. They become more intense.
+
+***
+***
+
+### Every Point  A Vanishing Point
+
+We split into groups of two or three. First we’d need to climb a chain link fence, then walk past the guard shack where the night watchman sits listening to his radio.
+	When we’ve regrouped beneath the first large billboard faced to catch the traffic on the West Side Highway, and see that everyone has made it, we pull out beers, take a look over the Hudson River, and continue up the overgrown track bed of the abandoned Chelsea Highline, a set of elevated tracks that cut right through the heart of the Chelsea neighborhood. Every so often we encounter a hastily-built brick wall, put up by the city to prevent people like us from continuing up the tracks, as, on a previous visit, The Captain and I learned that many of the buildings adjacent to the disused railroad loading docks could be accessed from the tracks. Though each of the walls now had holes knocked into them or spaces dug beneath, and after pausing to help each other through, our group, who included The Captain, Zelda, and several others, continued through the elevated tracks through the west side’s hidden heart.
+	After a while, Zelda and I splinter off from the group, who has taken to lounging on a lit ledge overlooking the Union City skyline across the water. We climb the rickety ladders and tread across questionably stable catwalks above the docks. The tracks do not skirt buildings, but pass through the very middle of them, creating tunnels that stand three stories above the ground with loading docks on either side. We pause in an open area nestled amidst docks and solid brick walls of the neighboring buildings, bathed in the hushed glow of the city’s ambient night lights. I tell Zelda of my plans to leave after Halloween. She tells me if I stay one more day, she will take the day off from work.
+
+Our bodies meet each other in the cool recesses of the tracks. 
+	Hands on hips. 
+	The metal of this industrial detritus creates a low groan in the night air. 
+	Kisses in the crease of neck. 
+	Overgrown grasses shake in the gusts of breeze, scent the air. I take my eyes off of her, the lights and silhouettes of surrounding towers streak the sky. An island of dark, lifted above city streets, joining one building to another.
+	Lie down. Cold knees. Fingernails run down back.
+	Forgotten Manhattan. Abandoned Manhattan. To the gamblers go the dynamic colors, the euphoric triumphs.
+	Light catches in the band of her silver hoop earring. Let my breath warm you.
+	In danger there is present something, desire the same as wildness. The skipped heartbeats…
+	Faster now.
+	…the choked breath and nerves on end, the quickened pulse, acute vision…
+	Take my hand.
+	…taste of blood, that this is what we can feel; these sensations, this moonlight…
+	Take it.
+	…This is what is potential. The reaches that leave the city hollow, empty. That reinforce that the world is ours. 
+	Now kiss me.
+
+---
+
+We walk back along steel rails that shine beneath grasses that scratch at clothing. The others have begun walking back to the ground level. We’ll catch up. But first we stop at the edge of a building, alone, before this stolen view, before this hollow city.
+
+---
+
+Halloween day. The Captain meets me at Bowery Manor and we join others in scavenging the rooms full of old theatre clothes for a costume. We then set out for food and a bike ride through Riverside Park to the Cloisters.
+
+We stopped to look over the Hudson, at the site of what was once Palisades Amusement Park.
+
+I wondered how much longer it could all last – living within the cracks, the overlooked corners. Thinking aloud about the relentlessness of the developers, the chain stores. Of how when one manages to create the space that one desires, there still remains the fear that another will fight to take it away – to build condos on it, to open another Duane Reade or Gristedes in the space where there was previously an independent business, to brick up a vacant building that others had turned into a home. Often the tables are slanted in their favor to begin with. Was it possible to continue living fulfillingly in a way contrary to seemingly every present convention? Within a landscape that wants you to shut up and buy, that would take the magnificent days and paint them into shades of gray?
+
+Palisades Park was deemed more valuable if the land was sold to developers. The city re-zoned the land for residential highrise towers, and the Ferris wheel and lights that crowned the New Jersey palisades were dismantled and removed. In their place was built three unextraordinary residential towers.
+
+I imagined the cliffs with their Ferris wheel lights and roller coaster screams, a scene that sparked romances and songs, shimmering across the mantle of skyline that composed the horizon for this empire city.
+
+I looked at The Captain, who was looking at the ground. They can tear down the amusement parks, I thought. They could brick up our vacant buildings, fire tear gas into our impromptu street parties, post uniformed police officers near the exit of every corporate retail store in town. We’ll make our own amusements, find another way into the buildings. If the corporations want to manipulate and exploit the communities and landbases that we’re a part of, we’ll live at the expense of those corporations. And if they seal some of the cracks, we’ll find others.
+
+The demolition of the amusement parks don’t destroy imagination, but only one commercial outlet of it.  And the corporations, no matter their ad campaigns and greenwashing, are destructive by their very nature. Despite some people’s good intentions and ideas, no city is sustainable. All of this will crumble one day.
+
+Maybe living as scavengers can last, I thought. Knowing that not everyone can do this, but if we can, then we have a responsibility to strike at capitalism’s vulnerabilities. And all of our wits and creativities not dulled by numbing work weeks and banal distractions exist for the sake of us living out our wildest dreams, of us putting a stop to those entities that hurt those that we identify with.
+
+The Captain and I left the Cloisters and raced down Broadway, passing stopped cars, weaving between busses and taxis and sidewalks, navigating our bikes through the night-time day-bright lights of Times Square, keeping hold of the crown of leaves that was part of my costume.
+
+We rode to a party in Brooklyn. Inside the house, bands played. The back patio became a swirl of dancing. Bottles piled up on the ground. People were squeezed tightly throughout the too-small space, bleeding out into the late night streets.
+
+The last band unscrewed the metal panel and plugged their keyboard and amp into the streetlight outside. Everyone flooded out, the dance-y discordance echoing off of stoic walls, indecipherable vocals screamed to the skies above, and the street was awash in the most ecstatic dancing of the night.
+
+When the cops pulled up with their sirens on, their hesitancy was all it took. The band launched into the next song and people moved into the street to dance in the beams of the car’s headlights, writhing across the hood as the lone cop inside waited for backup to arrive.
+
+One final burst of noise. Beer bottles flying across the roof of the car, and then the band unplugged just as another two police cars pulled up. Now the officers got out of the car and charged toward the house. But by then, kids were scattering, racing away on bikes, staggering with arms around each other down empty streets, walking away in various states of costume and undress, laughing loudly into the vigil sky.
+
+It’s my last night in New York. After pushing the day later and later, I realize that I need to leave before winter’s storms throw inclement tantrums over the whole of the east coast.
+
+---
+
+But time is capable of playing tricks too.
+
+We had fantasized about living in an abandoned casino. There, on the shore, with the banner ripped from the Stone Pony, we moved into the upstairs room – you in silhouette, heels, formed pants, teased hair, lips, straddling the handrail before the sepia tone of boardwalk light. The burnt out lights say CASINO.
+
+The warmest day becomes the coldest night.
+
+We made our home in the river. The flood tides pushed beneath us while autumn burnt all of the trees along the embankment. But rootlessness on a river does not leave one still.
+
+And stories that will never be told.
+
+Impact left breathlessness in its wake and everything upturned when it settled again. It took a crash to brake the momentum. On a new day, tearfully, we each left Esperanza.
+
+---
+
+Zelda and I walk from the N train to Coney Island. It’s raining, November now, and the boardwalk is completely deserted given the circumstances. We walk out to the end of a wooden pier.  The pier stands silently above the Atlantic Ocean. The flow westward, the ripples making it seem we are standing above the flowing layer of clouds. I step away from her and walk to the pier’s end, and when I turn around I see only her silhouette, black with a halo of orange, by the light behind her. Her curls stand in the air, and her black skirt flows from her hips. In the light I can see the mist blowing through the air, the projects stand in the background.
+
+She lifts the glass to her lips, her shadow moving in gentle motions and all light plays on the crystal of the glass. I hear nothing except for the waves against the shore. Coney Island stands in darkness. Brooklyn stands in silence. Only the air and the water move. She is close, but not close enough for me to make out her features.
+
+Maps. State maps. Bike maps. Subway maps. The maps brought us this far. Paper representations of scale. Two dimensions representing three. But geography is fluid, and ink is not. I look out at the maps. I have a destination and do not want to get lost. But here, on this pier, perched above the vertigo of the Atlantic, the maps won’t reach. The water flows, the heartbeat quivers. One cannot map the cities of the interior. 
+
+You set the glass down on the pier’s rail. The rail lit in a line of orange light, the moisture glows. You walk over to me. The coordinates shift. The pier and beach are empty, the time is anyone’s guess. But who wants to guess. 
+
+Four weeks ago, I wanted you but you didn’t know it. Three weeks and we were kissing on the roof. The coordinates shift. 
+
+You keep walking and now I can see traces of your features. My sunglasses on your head that you won in a bet. Moisture clings to the lenses. The outline of your nose. That devilish grin.
+
+In Atlantic City, everything changed. In the dark of our bedroom, everything changed again. 
+
+Fluid coordinates.
+
+Fluid geographies.
+
+Over time your kisses grow softer, yet more intense. You showed me the New York that you love.
+
+Again the coordinates shift.
+
+You were drawn to the madness, the electric. Nothing in my sight shone more intensely than you.
+
+The maps can only capture so much. On that pier you stood on top of the railing, wind blowing fog across me, across your outstretched arms. I could do nothing but watch. This wasn’t like the literary conflict where you hope for a climax. I wanted you to climb down, but I understood I could say nothing. And I watched you in awe. You only flung your head back and laughed. Then you sat on the rail, facing me, inviting me into your arms, kissing me, then pulling away and smiling, looking into my eyes. With my arms around you, you told me to hold on, then quickly flung all your weight backwards, your body leaning as far back as it could stretch and me shoving all my weight on your legs to keep you from falling. You lost your balance, and with my arms I could feel you struggle. A couple seconds, a couple minutes. The ocean flowed beneath, flowed for centuries. The ocean is no indication of time. Finally your arms grabbed my shirt and you pulled yourself up to me. You looked into my eyes and laughed. Then you kissed me.
+
+I know you can’t trust the maps. They’ve left me lost and directionless. But for some reason I followed you. I knew what direction you would lead me. Away from the city. Away from civilization, its clock and grids. But I never knew how far. I couldn’t have guessed I’d follow you to the fringes. Where geography meets the sea. And then further. Naked, into the Atlantic. 
+
+I became helpless. The way I felt when you stood on the rail. Two options: leap to the ocean or climb back to safety. This was the first time I had ever witnessed you choosing the latter.
+
+I couldn’t track my own coordinates. I couldn’t even guess at them anymore. I felt like the ocean, the tugging and pushing of so many directions, though this tumultuousness was still bound to the tide.
+
+We left the pier. I told you I wanted to walk on the beach. And we stepped into the sand and walked toward the water. Toward a rock jetty, like the one in Atlantic City that we had walked to the end of and got soaked by a crashing wave. We stepped out onto this one, but only to a point where the waves were small, and you turned and held me. In an unspoken somberness our words didn’t have their typical recklessness. At the ocean’s level the sound of the waves buried all other noise, and your silent face and gestures moved to the soundtrack of the surf. When I held you all I could see were the waves crashing upon the rocks on which we stood. When we kissed all I felt was the warmth of your lips in the chill moist air. Your hair was matted with the rain and your gloved hands tracked wetness down my back. We were still, and the ocean, the air, the sand moved around us. 
+
+You pointed out the size of the Ferris wheel. How it dwarfed everything around it. And it did. 
+
+Only the land was stationary. At our feet the ocean pulsed. The collision of sea and rocks sent white water splashing into the air. As each wave passed, the level of the water gained and dropped. My back to the land, my eyes on yours. Everything was fluid. Everything in my view pulsed.
+
+There were no other people in sight. The amusement park silent, the beach empty. The weather discouraging, but not to us. The air wet, the ocean wild. And I reel from the last month’s intensity.
+
+And then we left the jetty. Spinning circles in the sand. Trying to force movement into our legs but only wanting to hold each other. Even with a solid surface beneath my feet I still felt dizzy. There was no light on the sand, but when she spoke I could sense the expressions on her face. I knew them well now. She pointed to the Ferris wheel again. Saying how she wished we could have ridden it.
+
+‘Next time,’ I said. Unsure if there would ever be a next time.
+
+And we walked toward the amusement park, leaving the beach at our backs. Beneath the Ferris wheel, the air still cold, the ground still in puddles. Stepping up to the platform and the waiting N train. And then sailing, noisily, back toward Manhattan.
+
+Morning. I put the last of my things into my panniers. Zelda left, then came back into the room with a breakfast of spiced beans and toast, handing a plate to me and turning on the radio to the oldies station.
+
+Words failed me. All I thought of was leaving. Not so much leaving New York, but leaving her. Leaving the disorder of her that I had grown accustomed to.
+
+We climbed to the roof, and spoke of insignificant things. The city was a different entity during the day. The night’s towers of lights, its blue and gold neon, were in the daylight simple cold brick facades and peeling storefront signs. The crown sat empty at the far end of the roof, unoccupied since I had moved my things into one of the downstairs rooms with Zelda. Earth movers continued clearing and shaping the large pit directly across Houston Street, sending the noise of engines and reverse warnings echoing into the streets.
+
+I said goodbye, and walked back down the stairs. Part of me, the part connected to that lump in my throat, that pit in my stomach, wanted to stay in the city. The feelings lingered. Saying goodbye to Valencia and Ox, and then pushing my bags through the hole in the wall. When the downtown highrises and street commotion flew by me, all I thought of was her. The Staten Island boardwalk, the bridge into New Jersey, that longed-for feeling of gliding through new unfamiliar streets, but all I thought of was her.
+
+***
+***
+
+### Swimming
+
+The ferry terminal in Cape May, the southern tip of New Jersey.
+
+I lean my bike against the terminal and walk along the boardwalk to a fence that looks out upon the mouth of the Delaware River. Sun hovers in the sky, water washes upon rocks. I breathe the ocean. Everything on my mind seems so elusive, mercurial, but with those breaths I remember simply how much the sea anchors me. I jump the fence and walk down the rocks to the intertidal zone. The water pulses back and forth, burying and revealing stones. The sun descends slowly.
+
+Transition. The autumn is cold now. Out of the city, the leaves fall once more. Yesterday, one landed in my lap as I rode through the pine barrens of southern New Jersey. The wind blows at my back, and birds circle in the sky above me.
+
+The coordinates have shifted again. Movement alters perspective. I don’t sit and dream of the past. The turn lanes are misleading. There is only forward.
+
+Cape Henlopen, Delaware.
+
+Awake at the first sign of light, I walk my bike to the shore. Hair blows into my face, hands numb with wind chill. It’s beyond the point of just another layer, now it is calling for my winter jacket.
+
+The currents thrust themselves on the shore. There is no break in the roar, water rushes cathartically into land.
+
+She was on my mind all day. I wondered about myself. If I take the casual situations too seriously. If I imagine what is not actually there. 
+
+The rain comes, and by afternoon I’m soaked. Riding in an uncomfortable jacket and slightly-less-than-watertight rain pants, my shoes slushed with water. My gear sandy and drenched. I don’t keep track of the miles. My mind alternates between misery and the desire to just pay for a ticket to Florida.
+
+Before sundown I found an abandoned home, completely stripped to its core, behind a layer of trees. At a gap in traffic I rode down the overgrown driveway and lifted my bike through an open window. I swept broken glass out of the way, hung my wet clothes on several rusted nails, and lay my sleeping bag down on the cement floor, falling asleep to the sound of raindrops on the slanted aluminum roof.
+
+In the morning I look into a mirror and hardly recognize the image before me. My face is dark from weeks of sun, eyes red from wind. My hair lays down for the first time in years.
+
+Day brought sore legs and skies that verged on rain. A relaxed pace over gentle rolling hills, more falling leaves, large shoulders, abandoned motels to explore, and friendly people along the way. I rode upright, singing Belinda Carlisle songs to the day that grew progressively sunny. My mood led me to pedal faster. The clear day bringing a wave of euphoria over me, as I raced southbound, leaving Delaware for Maryland.
+
+Then came the burst. The shrill sudden pop I’ve come to recognize instantly as a burst tube. I pull into the parking lot of a gas station to fix the tube. The clear day moves toward dusk in soft exhalation.
+
+As I kneel down to look at the wheel, I see the tire’s sidewall has blown out. Patch the tube and attempt a makeshift patch job on the tire. When I fill the tire with air, both tube and tire burst again. I try another repair and use a new tube, which pops again. The sun has gone down, twilight settles over the gas station parking lot and the quiet roads beside it. I’m told there are no bike shops in town, the only suggestion is that I call the Wal-Mart in a neighboring town.
+
+I look at my map and decide to walk my bike a few miles to the road that puts me in a better place to hitch to a town with a bike shop from. And while I’m pushing my bike with an irreparable flat rear tire – the wheel that also supports the extra weight of all of my gear strapped to the rear rack – searching for the road that isn’t quite where the map makes it out to be, growing more tired as the hour grows later, it begins to rain.
+
+I walk my bike down empty streets. Lights inside homes are all dark. The empty church and auto shops I pass give the situation the feeling of utter desolation.
+
+A man passes me on the sidewalk, the encounter seems odd. I say hello and he greets me back, keeping a suspicious degree of eye contact. A couple seconds later he asks if I need a new tube or something. 
+
+‘I need an entirely new back tire,’ I respond. He tells me his name’s Cornell. His driver’s license has been revoked and he just needed to make a phone call up the street, so he’s out walking on these empty streets. He tells me he might be able to help me out. It’s late. I follow him. Despite my exhaust, I’m trying to assess what’s going on.
+
+He turns into the darkened driveway of the only house on this side of the street. He’s explaining that he just works in his yard as an auto mechanic. 
+
+‘A mechanic with no license?’ I laugh.
+
+He doesn’t.
+
+He walks to the furthest corner in the back of the driveway, motioning for me to follow him. Suddenly the unkempt yards and trash-strewn lots conspire to tell me something. I lag cautiously behind, my hand on the knife in my pocket, wondering how legitimate this situation is.
+
+Then Cornell emerges from the back with an old 12-speed bicycle. He says he doesn’t know bikes that well, but I’d be welcome to use any parts from this one, and he stands back, offering his help in any way he can.
+
+He tells me that he lives with his wife and kids inside the house, three girls. He tells me their names. Then explains that there’s nothing to do in this town. 
+
+Too often fear can lead to ghettoes perceived as security.
+
+I exchange my tube and tire with those on his bike. He watches attentively, jokes around about having these old bikes but never riding them. When I finish, he asks only if I have a couple cigarettes. I hand him a few dollars and thank him repeatedly. Then I ride away, once again, a little more optimistic of people’s tendencies toward generosity.
+
+---
+
+The moments pass, leaving me even more confused.
+
+I consider the shattered reflection that has engulfed me. The way that what we thought we knew of ourselves crumbles in the midst of such a rush of feeling. A rush that comes like a storm, and then goes, and we are left to pick up the pieces.
+
+I verbally remind myself how alien, impersonal New York City is. How the police raids, the rumor that Coney Island was bought out and has only a couple seasons remaining, the post 9/11 security shutting down the places we had gone in the past to explore, all made it feel as if our hole-in-the-concrete way of existence was in its endgame. In fact, even in its recent boom periods, the island of Manhattan felt as if it was gradually sinking – the compartmentalized lives that were continuing to go up in cost, the influx of hipsters occupying Brooklyn and all this new hype about Williamsburg pushing my friends progressively further and further out on the train lines, and the more time I spent in the city, the less convinced I was that life within its bubble wasn’t just completely disconnected from the rest of the world. It was as if the skyscrapers were tilting, and uprooting any graspable semblance of living in tune to any type of natural rhythm. The artifice was suffocating. And I felt that when all I wanted was to topple the columns carrying such illusions, of this fantasy of being able to carry on this mental and ecological unsustainability, there were bulldozers and cranes gunning their engines constantly, ready to reinforce the columns. There were the police, the uniformed doormen, the razor wire fences, this idea hanging in the air like a noxious gas that this is where the elite meet, dine, ink deals, speculate on property in ‘up-and-coming’ neighborhoods, all of them erecting more columns, reinforcing this world that carries on disconnected and separate from the ground beneath it. A city in the sky, tunneling underground. But its landmass is literally garbage. The rivers that touch it nearly lifeless. And all of those people, technicians and complacent bystanders in this alien world, continue to walk across this island of pavement, indifferent, speaking on cell phones to ghosts not present.
+
+Or maybe I was just rationalizing my leaving; painting a disgusting image of the city in my mind to more easily accept that I left friends, the risk of actualizing life outside of a rental agreement, a relationship that had just scratched its surface, and was, instead, on a bike bound for Florida, or some abstract future destination.
+
+I wasn’t sure what I wanted anymore. All I knew was that things seemed as if they were taking place beneath the surface of water – where you reach for an object only to realize that perspective has been thrown off, and that object you seek to grab eludes you.
+
+---
+
+I stood at the apex of the bridge, looking down at the water, at the rippling blue mass that could remain both calm and perpetually in movement. Again, I was leaving solid land, for an island on Maryland’s eastern shore. I had wanted to ride here, this enigmatic landscape, since leaving Vermont. And so it was that I came to this island, to the brisk winds that blew the autumn chill wildly over the land and left the sandy dunes and grass-filled salt-water ponds nearly empty of anyone else. 
+
+I bit at my chapped lips. Having left my bike somewhere back at the single dead-end road that entered onto the island, I walked against the wind. My chest felt like an hourglass shaken, sands disturbed from sequence and then left still.
+
+Moments can change lifetimes.
+
+A sign tells of the shipwrecks buried beneath the island. Most are several centuries old. And despite the knowledge that these wrecks are there, somewhere below the surface, many can’t be located. It is only when a particularly violent storm hits that they are uncovered, and then, often, only temporarily, until the sea and wind bury them once again.
+
+This land is not still.
+
+One night, while sharing a bottle of wine at the edge of a vast and temperamental river, my friend spoke of her risks: ‘Maybe I’ll realize it was all wrong, but what if I don’t try it, and I never find out either way…’
+
+I walk down to the water. The Atlantic an amazing sea of turquoise, the sand dunes that slope up from where the waves roll in white crests onto the shore, from where I stand, an immaculate beige, the surface of sand sculpted flawlessly in the onshore wind.
+
+In a moment the wind shifts, becomes soothing. The colors of the sea appear magnificent, encapsulating, crashing like a dare under sunlight that melts the late afternoon sky. Subtleties that went unnoticed before appear vivid now. 
+
+Time doesn’t change, only its substance.
+
+As I turn back toward the top of the dunes, I look across the shrubs that stretch out before me. That’s when I see it. A streak of auburn that catches the waning sunlight, then disappears. I stand still, waiting for another glimpse, but see nothing. I climb the dune, stepping through sand and shrubs in the direction that I saw the streak of color. I get closer, climbing a small sandy hill, standing in a grove of young conifer trees. That’s when I see the horse.
+
+I’ve courted disaster. I’ve chased storm and heartbreak. I’ve run until my tires have worn through, until the trains have sidelined.
+
+The horse stays still, looking. Not at me, but at something else closer to it. Auburn and white, its attention remains fixed on this invisible nearby object.
+
+I’ve run until mudslides have blocked the roads, until snowfall has buried them. I’ve run up mountains, swam out to sea. Running until the sun rose over us in the sand in front of the Atlantic Ocean.
+
+Their origins here are vague. One theory is that a Spanish galleon wrecked off of this coast, and that these horses have descended from those who fled their captors, swimming to the shore, living a feral existence from that time.
+
+And then I see what the horse is looking at. Through the branches steps out another horse. This one solid brown with a dirty blonde mane. Eating from the grass on the ground. Then I look closer and see another horse behind a shrub, out of view unless you focus on its subtle contrast. Soon a fourth walks into view. And finally, through another gap in the shrubs, I see a fifth. I sit down. I fill my lungs with air, and for the lifetime I have no desire to be anywhere else.
+
+Then I realize, when the city is built beyond all logical bounds, from empire to ashes, it is the scavengers who most prosper, who retain the knowledge of how to live through excess as well as its disappearance.
+
+With whom do we identify? I ask myself. Because for all of my doubts and faults and questions, if I could create my own world, act out my life with my own agency and authority, what would that world look like?
+
+Beyond the road’s end, I continue walking. Shadows stretching longer. The sea washes up in pools of emerald, and when it flows back out it leaves the sand beneath a fragile sheet of coral. The cacophony of waves overtake my thoughts. I bend down and put my hands into the next wave that washes up. 
+
+Because when it comes down to it, what else do you have? If I am here now, what reason would I possibly have not to fight tooth and nail for what I want this life to be?
+
+I kept walking. Miles. Moments. Lifetimes. Until I found a spot in the dunes. No signs of civilization. Only the sound of the ocean in the near distance, and the grasses and trees that whistle and dance in the wind. The sun has fallen out of view. To the west, the relaxed hues of pink and orange stretch out across the horizon. To the east, the full moon sits, appearing to be in reach if one were to stand atop the sand dune just beneath it. The air is cold. I pull my sleeping bag around me.
+
+‘Maybe I’ll realize it was all wrong, but what if I don’t try it, and I never find out either way…’
+
+Breathing in the end of day, I looked at the sky. Always what it returns to. Me and the sky.
+
+I want a healthy community, I want relationships built upon sustainability.
+
+First one shooting star crossed the heavens.
+
+And I want an end to all those forces that threaten and harm those that I love.
+
+And then another.
+
+Why did I leave? I wonder. Is it worth giving up the presence of those whose company, creativity, energy you enjoy for plans that were made previously? To live like stone in a fluid world?
+
+Shooting through the sky – like spectacular crashing planes. Heavens tumbling out of balance.
+
+Out of balance.
+
+I made a wish.
+
+The city is a disguise, a veil that humans possess the unpossessible, a collective construct of selective beliefs, that humans have control. I don’t believe this. I feel that we only have agency and risk, and everything else is left to the complex web of ecologies and uncertainties. But in a cyclical time, every moment can be the ending point, the breaking point, the starting point. Each morning we awoke, left free to our devices to make a feast of the new day. If risk is all that we possess, then I would embrace it. What would that world look like? There is no other way. In the morning, I would turn around.
+
+If granted one desire, I wished to spin silk back into silkworms, the wheat fields back into prairies, the gold and copper back into mountain ranges, and to see the cities once again become the floodplains and deserts and forests they once were.
+
+Like a love affair. Like a drug.
+
+And my second wish… to always remain vulnerable.
+
+*And this is how it all began…*
+
+---
+
+*All the dances and tears*
+*Wither on the vine like twilight*
+*Before falling to the ground*
+
+*Brittle hearts like fruit*
+*Whose time has come*
+*To no longer witness the sunsets or the floodtides*
+
+*But to become a part of it all over again*
+*A part of it*
+*For the dusk wind to blow away*
+
+*Stay forever wild.*
+
+***
+***
+
+***
+***
+
+### First I’m Gonna Make It…
+### —postscript—
+
+[but first, a warning:
+
+Once a story is set in ink, it becomes unalterable.
+
+In life, however, there are no conclusions.
+
+In this book, I have written my memories as best I could, though, respectfully, I have tried to acknowledge that stories are shaped by the invisible events that occur outside of the narration, and not define these memories to the point of stone facsimiles.
+
+I fear that, culturally, the urge to know has grown stronger than the desire to imagine, or quite simply, to feel. That in this modern existence, we are surrounded by information, but none of it is leading to a less domesticated way of life.
+
+Only physical interaction with the world around us can do that.
+
+What lies in the following pages only remains consistent with the linearity myth that plagues our cultural perspective of the world.
+
+Here is as good a place as any to tear out the final pages. To replace the ink narrative with your own.
+
+The choice to break the seal is up to you.]
+
+***
+***
+
+### …Then I’m Gonna Break It…
+
+We took the train into the city from her house in Brooklyn. On Houston Street, I helped her over the fence, and then up through that second-floor window.
+
+A year had passed. It had all changed. Plaster fell from the walls and ceiling of Bowery Manor. Everything was covered in the dust of neglect. We climbed the stairs to the roof only to find the rooftop doorway completely bricked up. Our entranceway on the bottom floor had also been sealed, the cut chains of our old door lying amidst the other moldy piles on the ground.
+
+It makes me uncomfortable, this building that I’ve come to associate with that devil-may-care season. With her. This building that once stood alive and intense now a relic exuding the still breath of lifelessness.
+
+Out on the grid of streets, the city was in the process of spending millions of dollars to turn the old Chelsea Highline into a park. Around the corner, CBGB’s had lost their fight to stay open and was now an art gallery.
+
+Our old bedroom showed signs of use, by who we didn’t know. But our old empty bottles and scavenged photographs, a little more dusty, remained on the shelves. The old cassette with the Harry Nilsson songs was still there, as well as the pieces of the checkers set we had won at the Coney Island arcade.
+
+Early the next morning, I climbed out of bed. Walking through the main room, past the piano, the couches, the paintings, I climbed the loft, leapt across the gap and sat on the ledge of the large open space where the window used to be. A monstrous building, all glass and polished metal façade, now stretched across the horizon right across Houston, where that large pit had been the year before. And on the ground level of that building, stretching the length of the block, was a Whole Foods.
+
+She came over and sat on the ledge next to me, kissed me. It was then that she told me that the day I had left, she had sat upon that same window ledge, watching me ride my bike down Bowery, away.
+
+We left Bowery Manor, climbing back out of that second-floor window, jumping back over the fence. It was early, the brisk chill of an autumn day. In a few days she and I would be leaving New York to hitchhike to New Orleans. But this morning we walked back down familiar streets, toward Avenue A, and a glass of wine.
+
+***
+***
+
+### …Til It Falls Apart
+
+The next time I would see Bowery Manor would be in a postcard The Captain sent me of a picture he had taken. In the picture, a bulldozer sits in a dirt lot, that back lot through which we had peeled back the fence and snuck through in order to get to our entrance. The brick façade of the building’s rear stood in an incomplete state of demolition.
+
+I rode my bike with that picture to the cement ruins at the river’s edge of the town that I was living in then. Climbing and sitting atop those ruins, I wondered of the ghosts of Bowery Manor. Of where the ghosts go when all that is familiar to them has been taken apart.
+
+Recently I walked back by Bowery and Houston. Only the community garden, the neighboring apartment building and Mars Bar remain of the days when Bowery Manor stood in dominant sentry over the block. When I walked past, it was a new high-end condominium building and wine bar that stood where the old building once did. The ghosts, I thought, I could only hope that they were now sipping and spilling fancy bottles of wine after hours each night and jumping on 1500 thread count Egyptian cotton linens in the penthouse apartments overlooking the heart of the lower east side.
+
+I took a breath, then continued across Houston Street, and into the Whole Foods, where I picked up a snack for the afternoon, and then, ignoring lines and registers, walked back outside.
