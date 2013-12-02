@@ -51,6 +51,48 @@ We came to the conclusion that our enjoyment couldn’t be brought about by our 
 
 I didn’t know what to expect. All I knew is that I would be riding along the coast for a few weeks, and, due to my aversion toward the whole capitalism thing, there would probably be more than a few opportunities to be creative as far as acquiring food and amusing ourselves went. As it turns out, to guess that this would be one of the most fun times of my life would still be an understatement.
 
+# Drugs And Daydreams
+
+***
+
+### Acknowledgements:
+
+>My sincerest thanks and fondest embraces to those who have been there along the way – from the creation of the stories to the creation of this book…
+>
+>Please contact the author at:
+>
+>Post Office Box 1282
+>
+>Fullerton, California 92836
+>
+>Disclaimer[s]:
+>
+>This is work of fiction.
+>
+>[However] Don’t believe everything that you read.
+
+***
+
+###      Contents:
+
+> Part I. Drugs And Daydreams
+>
+> Part II. Here Civilization Ceased
+>
+> Part III. Bring On The Dancing Horses
+
+***
+
+## Drugs And Daydreams
+
+***
+
+I don’t know when it was, or even why, but somewhere along the line, my sense of patience just disappeared. I just don’t have the tolerance for all of the structure in the world around me. Here I am, a couple years out of high school, and I’m seeing too many of my friends choosing to continue school or go to work. Maybe they enjoy it, but all of their whining would lead one to guess otherwise. If high school taught me anything, it’s that spending my time and energy trying to appease other people is something I’d never like to do again.
+
+We came to the conclusion that our enjoyment couldn’t be brought about by our passive entertainment, but by creating it wherever we go. A bicycle trip? What better way is there to explore places I’ve never been before? Of course I was down for it.
+
+I didn’t know what to expect. All I knew is that I would be riding along the coast for a few weeks, and, due to my aversion toward the whole capitalism thing, there would probably be more than a few opportunities to be creative as far as acquiring food and amusing ourselves went. As it turns out, to guess that this would be one of the most fun times of my life would still be an understatement.
+
 I knew The Captain well enough before the ride to know that he was always down for a little mischief. That’s pretty much what our crew, the Monster Squad, was all about when we’d take to the streets of Portland for nights filled with petty crime, and, every now and then, some not-so-petty crime. So with only an atlas of the US, a book about west coast bike routes, a couple phone numbers and a little cash, we hit the road. Traveling is always more fun when you are unprepared.
 
 ---
