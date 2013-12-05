@@ -90,11 +90,16 @@ I brought with me only the essentials; sleeping bag, some small tools, and a cou
 
 How do you prepare for a ride from Portland to San Francisco? I was gonna be on the road for several weeks, so it would be important to condition myself mentally and physically. With valuable preparation time running out before the ride, I decided to get into a conditioning routine that ended up consisting of a lot of parties, alcohol, and public nudity. You’d think that after a week of this, I’d be ready to run a marathon or climb a mountain. But I ended up just getting sick. Oh well. Maybe I’ll try a different routine next time.
 
-### The Destruction Commences!
+#### The Destruction Commences!
 
-May 5th had been our planned leaving date for a couple weeks. But a couple days before the 5th, we decided to leave a day later. The decision was that none of us wanted to leave on a Saturday knowing that there would be shows and parties gong on that night. Like I said, I don’t do well with plans. So May 6th, the three of us, Sharky, The Captain, and I – the fuckin Monster Squad! – met up downtown. The Captain had given out flyers for a ‘good-bye potluck’ in downtown Portland, an ingenious plan for us to load up on some food for the road. As it turns out, I was feeling too sick to eat anything. The result, no doubt, of my intense conditioning. But I did accept Harley’s gift of one can of Pabst Blue Ribbon, a very Portland gesture. We were ready to ride!
+May 5th had been our planned leaving date for a couple weeks. But a couple days before the 5th, we decided to leave a day later. The decision was that none of us wanted to leave on a Saturday knowing that there would be shows and parties going on that night. Like I said, I don’t do well with plans. So May 6th, the three of us, Sharky, The Captain, and I – the fuckin Monster Squad! – met up downtown. The Captain had given out flyers for a ‘good-bye potluck’ in downtown Portland, an ingenious plan for us to load up on some food for the road. As it turns out, I was feeling too sick to eat anything. The result, no doubt, of my intense conditioning. But I did accept Harley’s gift of one can of Pabst Blue Ribbon, a very Portland gesture. We were ready to ride!
+
+> >
 
 ---
+
+> >
+
 
 Off into the unknown. We had an entire coast of adventures awaiting us. The excitement was definitely in the air as we raced west on Burnside, headed for the coast. It took less than 15 minutes before we reached our first obstacle and began to wonder what the hell we were thinking. That obstacle was Washington Park, our passage through the west hills. It was a slope that I wouldn’t even want to walk up, let alone ride a bike carrying the extra weight of all my gear. We had the option of taking the MAX, Portland’s light-rail system, to the other side, but we said no, that would be cheating. We made several stops for water and to catch our breaths before finally getting to the top of the park. By the time we got to the peak, we swore we would be cheating next time. The rest of the day was just a straight ride along the highway until we hit the mountains just before the coast.
 
@@ -102,21 +107,30 @@ There wasn’t too much talking, we’d have plenty of time for that in the next
 
 Partway down, we pulled off the side of the road and laid out our sleeping bags behind a haystack. Sharky began to tell us stories of he and his lady friends in the past. Sharky is one of those guys that breaks any moment of silence with a story about him and a woman, one of those weird stories that make you just kinda stare at him and wonder why the hell he’s telling you that, where you can’t quite figure out if he’s bragging or trying to be disgusting. And it took him less than 12 hours into the trip before he got into them. Needless to say, I was pretty tired. At this point, I went to sleep.
 
+> >
+
+
 In the morning, after passing through some small towns, we came to
 
-### Tillamook.
+#### Tillamook.
 
 Nothing too special except for a Safeway. Now, as a way of life, in general, I try to avoid capitalism. This includes working, and, as much as possible, paying for anything. In Portland, the majority of my food comes out of dumpsters. It’s probably safe to say that a good portion of my possessions come the same way – records, clothes, furniture. The other method of obtaining things is theft. Of course, I’d prefer to dumpster my food; it eliminates waste rather than creating it. But when you’re traveling, and passing through towns with no health food stores or bagel shops, dumpstering, let alone dumpstering vegetarian items, is more difficult. So chain grocery stores become the next best thing. You walk inside, take a look around, and think to yourself that every single item in this store (or at least all that you can fit in your pockets) is free! Safeway’s are the best, because they are the biggest chain in the country, so you’re never more than a couple hours away from one. And the majority of grocery stores outside of the big cities and college towns have little or no security. So when we saw the first Safeway of the trip, our eyes lit up. For the trip, I had given myself of budget of $1 per day. I went through the register line in the store and paid for a couple bananas, then walked over to my bike and pulled out the granola, Clif-Bars, and chocolate soy milk which I had looted and packed it up. Off to the coast!
+
+> >
+
 
 If I had to list the best songs for a roadtrip soundtrack, ‘Only The Young’ by Journey would probably be at the top. Any time I go on a trip, I get that song in my head. So of course with the clear blue skies illuminating the brisk feeling of morning, I get Steve Perry’s wailing stuck in my head. But you can only pump your fist to the same song for so long. After about three hours, you’re desperately trying to do anything to get the song out of your head. And the fact that the rolling hills of Oregon offer no spectacular scenery to keep you distracted, you’re on your bike for hours at a time with nothing to do except watch the mile markers go by, and you can’t really talk to the people you’re with because of the traffic on the highway that keeps forcing you back into a single file line, the only way to get one song off your brain is usually to start humming another one. And so it goes, until you finally have something to see or do to take your mind off the song.
 
 Our first view of the Pacific Ocean was from a vista point on the side of the highway. We stopped, and, like every single other stop, took a moment to admire the view, then ate a Clif-Bar. While we were here, we met a couple who were riding from Portland, Oregon to Portland, Maine on a tandem bicycle. Now, just when I was starting to get an ego from hearing so many people say, ‘Portland to San Francisco?! You’re insane!’, there’s nothing to sober you up like running into people twice your age riding five times as far. We talked to each other a bit, then split off.
 
-### Lincoln Fuckin’ City
+> >
 
-We rode up a hill into a little coastal tourist town called Lincoln City. As we came around a corner, we saw a Safeway smiling at us. I got some Clif-Bars and trail mix, then we rode down to the beach to eat. I liked this city. It was one of those coastal towns that wasn’t too big or too small. The shores were lined with homes that were half summer homes for old rich people and half Bed and Breakfasts. It was also the type of place that had funny Viking statues outside of motels and several little outdoor shopping centers which seem to be the small town equivalent of a strip mall. Needless to say getting food here would be no problem. We slept on the beach that night, building a bonfire with driftwood and cooking pasta and sauce over it. Yep, this was roughing it. Sometime in the afternoon, Sharky thought it would be wise to mix LSD and alcohol, not telling us until we were about to get settled for the night. The last thing I remember seeing before I fell asleep was a wild smile on his face as he was dragging chunks of driftwood bigger than me across the beach to put on the fire.
 
-The Captain and I awoke the next morning and saw that Sharky was missing. I’m not sure why, but it seemed funny. We found a note that he left that instructed us to meet him at the Marine Science Institute in Newport. Ha! We weren’t even sure how far Newport was, or where the Marine Science Institute would be. So we were off, half laughing, half wondering what the hell Sharky was thinking, though I’m sure a head full of LSD and a belly full of malt liquor , along with sleep deprivation, may have a small affect on one’s sense of judgment. On the way to Newport, we were complaining how it was pretty important that we meet up with Sharky again, after all, he had the cookware. We were just talking about the importance of Sharky as we passed a thrift store. It was closed until 10 am, but the junk pile out back would make for an exotic dumpstering experience. We jumped into a scrap-heap and triumphantly emerged with cookware. Now, to hurry up and meet Sharky.
+#### Lincoln Fuckin’ City
+
+We rode up a hill into a little coastal tourist town called Lincoln City. As we came around a corner, we saw a Safeway smiling at us. I got some Clif-Bars and trail mix, then we rode down to the beach to eat. I liked this city. It was one of those coastal towns that wasn’t too big or too small. The shores were lined with homes that were half Summer homes for old rich people and half Bed and Breakfasts. It was also the type of place that had funny Viking statues outside of motels and several little outdoor shopping centers which seem to be the small town equivalent of a strip mall. Needless to say getting food here would be no problem. We slept on the beach that night, building a bonfire with driftwood and cooking pasta and sauce over it. Yep, this was roughing it. Sometime in the afternoon, Sharky thought it would be wise to mix LSD and alcohol, not telling us until we were about to get settled for the night. The last thing I remember seeing before I fell asleep was a wild smile on his face as he was dragging chunks of driftwood bigger than me across the beach to put on the fire.
+
+The Captain and I awoke the next morning and saw that Sharky was missing. I’m not sure why, but it seemed funny. We found a note that he left that instructed us to meet him at the Marine Science Institute in Newport. Ha! We weren’t even sure how far Newport was, or where the Marine Science Institute would be. So we were off, half laughing, half wondering what the hell Sharky was thinking, though I’m sure a head full of LSD and a belly full of malt liquor, along with sleep deprivation, may have a small affect on one’s sense of judgment. On the way to Newport, we were complaining how it was pretty important that we meet up with Sharky again, after all, he had the cookware. We were just talking about the importance of Sharky as we passed a thrift store. It was closed until 10 am, but the junk pile out back would make for an exotic dumpstering experience. We jumped into a scrap-heap and triumphantly emerged with cookware. Now, to hurry up and meet Sharky.
 
 Sidetracked once more by the Devil’s Punchbowl. Our logic: if it’s named after the Dark One, it’s gotta be cool. It turned out that we met one of the coolest critters here – Asshole The Squirrel. So affectionately named due to his assholish nature of fighting every other squirrel who approached us while we were eating. The Devil’s Punchbowl also lived up to its name – a large circular hole carved out by years of water erosion. Photos and goodbyes with Asshole and it was off to catch up with Sharky.
 
@@ -128,11 +142,17 @@ One more try at the aquarium, no Sharky. Do we sit and wait? After all, he does 
 
 A bit down the highway, a house catches our attention – covered in railroad paraphernalia along with a room full of model railroads and a neon ‘OPEN’ sign. We went in and talked to the old guy whose house it was a bit. It turns out Sharky just happened to be riding down that stretch of highway right then, and saw our bikes, and went inside to find us. We all got back on our bikes and continued south, until we hit the town of
 
-### Waldport
+#### Waldport
 
 where we split off from Sharky. ‘You wanna meet somewhere tomorrow?’ I asked. ‘Nah, I’m sure I’ll run into you on the highway somewhere tomorrow.’ We didn’t know it at the time, but this would be the conclusion of the Sharky portion of the tour. The Captain and I slept on the beach again that night.
 
-### The Forest
+> >
+
+
+#### The Forest
+
+> >
+
 
 The coast of Oregon varies so greatly from one part to another. Over the course of a couple hours, it would feel like we were in totally different worlds. We had already emerged from tiny farm towns into touristy beach cities. When we woke up this morning, we began our ride in a town just south of Waldport. While we overheard the conversations of the drivers and the gas station owners (who were also the attendants and mechanics) asking each other about the others’ family and plans of vacations… you know, that sort of small town Mayberryesque atmosphere. Leaving this environment, we began to head up into the hills, through amazing lush green mountains overlooking the ocean. We made more than a few stops just to gaze off and lose ourselves in the sounds of waves crashing against the cliffs which lined the shores. It was still morning, and the sun had not yet peaked over the mountains, and the crispness of the air felt so soothing blowing against my sweaty body. Everything seemed that much more fresh. Somewhere along the way, we turned off from the highway and onto an old road that had been closed to automobile traffic, making the ride through the trees that much quieter and more relaxed. We pulled into a cove that had trails leading down to some tidepools, and a rock formation called the Devil’s Churn. The Devil’s Churn is pretty much a giant crack into the cliffs that goes from being empty to violently full of water with each wave that comes in. Its end is in a small dark cave full of rocks the size of bricks, which are thrown up and down as each wave comes in, making the sound of one of those wooden rainmaker tubes. We sat there for a long time, just staring at the water and listening to the rocks. The forested areas of the Oregon Coast I remember as being one of the most beautiful environments I have ever seen, and the Devil’s Churn is one of the reasons why.
 
