@@ -1,23 +1,20 @@
 # Drugs And Daydreams
 
 ***
-***
 
 Acknowledgements:
 
 My sincerest thanks and fondest embraces to those who have been there along the way – from the creation of the stories to the creation of this book…
 
-***
-***
+> >
 
 Please contact the author at:
 Post Office Box 1282
 Fullerton, California 92836
 
-Disclaimer[s]:
+> >
 
-***
-***
+Disclaimer[s]:
 
 
 This is work of fiction.
@@ -25,9 +22,10 @@ This is work of fiction.
 everything that you read.
 
 ***
-***
 
-## Contents
+ Contents
+ 
+ > >
 
 Part I. Drugs And Daydreams
 
@@ -36,42 +34,55 @@ Part II. Here Civilization Ceased
 Part III. Bring On The Dancing Horses
 
 ***
-***
 
 ## Drugs And Daydreams
 
 ***
-***
 
 I don’t know when it was, or even why, but somewhere along the line, my sense of patience just disappeared. I just don’t have the tolerance for all of the structure in the world around me. Here I am, a couple years out of high school, and I’m seeing too many of my friends choosing to continue school or go to work. Maybe they enjoy it, but all of their whining would lead one to guess otherwise. If high school taught me anything, it’s that spending my time and energy trying to appease other people is something I’d never like to do again.
 
+> >
+
 ---
 
-We came to the conclusion that our enjoyment couldn’t be brought about by our passive entertainment, but by creating it wherever we go. A bicycle trip? What better way is there to explore places I’ve never been before? Of course I was down for it.
+> >
+
+We came to the conclusion that our enjoyment couldn’t be brought about by our passive entertainment, but by creating it wherever we go. A bicycle trip? What better way was there to explore places I’ve never been before? Of course I was down for it.
 
 I didn’t know what to expect. All I knew is that I would be riding along the coast for a few weeks, and, due to my aversion toward the whole capitalism thing, there would probably be more than a few opportunities to be creative as far as acquiring food and amusing ourselves went. As it turns out, to guess that this would be one of the most fun times of my life would still be an understatement.
 
-I knew The Captain well enough before the ride to know that he was always down for a little mischief. That’s pretty much what our crew, the Monster Squad, was all about when we’d take to the streets of Portland for nights filled with petty crime, and, every now and then, some not-so-petty crime. So with only an atlas of the US, a book about west coast bike routes, a couple phone numbers and a little cash, we hit the road. Traveling is always more fun when you are unprepared.
+I knew The Captain well enough before the ride to know that he was always down for a little mischief. That’s pretty much what our crew, the Monster Squad, was all about when we’d take to the streets of Portland for nights filled with petty crime, and, every now and then, some not-so-petty crime. So with only an atlas of the US, a book about West Coast bike routes, a couple phone numbers and a little cash, we hit the road. Traveling is always more fun when you are unprepared.
+
+> >
 
 ---
+
+> >
 
 This is liberty. We thrive on walking into the supermarkets – the cornerstone of the capitalist lifestyle – with its aisles of food, the essence of life, commodified and quantified, where beneath its watchtower windows and video surveillance, behind the suspicious eyes of managers and security guards, we walk out with pockets full of Clif-Bars and pants bulging with cartons of soy milk.
 
 The Monster Squad pays no one and makes no apologies. This is life. This is defying our sense of security, intentionally jumping into a world of vulnerability, and coming out on top!
 
-### ‘Boredom is counterrevolutionary’
+> >
+
+#### ‘Boredom is counterrevolutionary’
+ 
 
 There was always someone new to talk to, somewhere new to explore, a new tree to fall asleep beneath, and, given the right circumstances, a new surface to deface or a new chainstore to loot. The thought of having nothing to do never even crossed my mind. Like I said, this is life. There are no cubicles or fancy cars, no deadlines to meet, TV shows to catch, or bills to pay. Pleasure isn’t a recreational activity relegated to evenings and weekends, it is a state you live in constantly. And each night, with your muscles aching and nerves exhausted, you lay down, eager to do it all again tomorrow.
 
+> >
+
 ---
 
-The idea:	The Monster Squad is the name of our bicycle gang in Portland, Oregon. Kinda shabby as far as gangs go. We have no stories of crazy showdowns with rival gangs, nor can I say that any of us rank all that high on the Portland police’s ‘Most Wanted’ list. But there have been plenty of rides that last until sunrise – nights of covering the town in wheatpaste, hitting new car lots with eggs and cottage cheese pulled from grocery store dumpsters, crashing parties, sneaking into hot tubs, very indecent exposure, successful schemes to get free alcohol, and just chaos in general. Well, the idea was to go out and conquer the entire country! No bagel shop undumpstered, no movie theatre un-infiltrated. We were going to cross the country, dirty punk kids on bikes as far as the eye could see, bringing entire metropolises to a standstill, and leaving a path of wreckage in our wake.
+> >
 
-The plan:	None really. Which is just as well. I don’t do well with plans. As the ride came, more and more people who had originally said they wanted to go became involved with other interests and projects, and what we had pictured, or at least fantasized, of hundreds of kids turned out to be… three. The destination was moderately altered, so that, rather than going to Boston as was originally thought, we would now be riding from Portland to San Francisco. Between the three of us, we had a handful of contacts on the way, and a handful of places we definitely wanted to stop, but beyond that, everything was completely up in the air.
+**The idea:**	The Monster Squad is the name of our bicycle gang in Portland, Oregon. Kinda shabby as far as gangs go. We have no stories of crazy showdowns with rival gangs, nor can I say that any of us rank all that high on the Portland police’s ‘Most Wanted’ list. But there have been plenty of rides that last until sunrise – nights of covering the town in wheatpaste, hitting new car lots with eggs and cottage cheese pulled from grocery store dumpsters, crashing parties, sneaking into hot tubs, very indecent exposure, successful schemes to get free alcohol, and just chaos in general. Well, the idea was to go out and conquer the entire country! No bagel shop undumpstered, no 3rd-rate tourist attraction un-infiltrated. We were going to cross the country, dirty punk kids on bikes as far as the eye could see, bringing entire metropolises to a standstill, and leaving a path of wreckage in our wake.
 
-The characters:	There was Sharky, a guy pushing 40 years old who has lived all across the country, and even in England a little, who is a veteran dumpster diver with some crazy stories to show for it. His other big interest is fixing up and riding bikes, and I always see him around town sporting a new ride. There was The Captain, still in his teens, who has done some crazy bike trips, including parts of Europe. I’ve known him for almost all of the two years that I’ve called Portland home. We’ve had many a crime-filled night of bike rides that last until dawn, as well as intoxicated punk-rock bowling nights and some crashed parties where you wake up the next day and wonder how it is you didn’t end up in jail, or at least with your ass beat, the night before. And then there’s me – I’m not giving you an introduction, you’ll get an idea of me as the story goes on. The three of us were united by our common hatred of the automobile. A contempt surpassed only by our feelings toward work, which left each of us with a free summer and a desire for adventure.
+**The plan:**	None really. Which is just as well. I don’t do well with plans. As the ride came, more and more people who had originally said they wanted to go became involved with other interests and projects, and what we had pictured, or at least fantasized, of hundreds of kids turned out to be… three. The destination was moderately altered, so that, rather than going to Boston as was originally thought, we would now be riding from Portland to San Francisco. Between the three of us, we had a handful of contacts on the way, and a handful of places we definitely wanted to stop, but beyond that, everything was completely up in the air.
 
-The preparation:	I ride a bike to get around. Partly because Portland is such a small place that you really don’t need a car, and partly because of that whole impending ecological devastation issue. The longest bike trip I had done in the past was about 300 miles, a round trip from LA to San Diego along the southern California coast.
+**The characters:**	There was Sharky, a guy pushing 40 years old who has lived all across the country, and even in England a little, who is a veteran dumpster diver with some crazy stories to show for it. His other big interest is fixing up and riding bikes, and I always see him around town sporting a new ride. There was The Captain, still in his teens, who has done some crazy bike trips, including parts of Europe. I’ve known him for almost all of the two years that I’ve called Portland home. We’ve had many a crime-filled night of bike rides that last until dawn, as well as intoxicated punk-rock bowling nights and some crashed parties where you wake up the next day and wonder how it is you didn’t end up in jail, or at least with your ass beat, the night before. And then there’s me – I’m not giving you an introduction, you’ll get an idea of me as the story goes on. The three of us were united by our common hatred of the automobile. A contempt surpassed only by our feelings toward work, which left each of us with a free summer and a desire for adventure.
+
+**The preparation:**	I ride a bike to get around. Partly because Portland is such a small place that you really don’t need a car, and partly because of that whole impending ecological devastation issue. The longest bike trip I had done in the past was about 300 miles, a round trip from LA to San Diego along the southern California coast.
 
 As for my bike, I had found a road bike at a thrift store for $2. It was a pretty nice bike, just a little old and dusty. I invested $5 in parts and about three hours in time fixing it up. Strap on my panniers and I was ready to roll!
 
@@ -2016,13 +2027,13 @@ The choice to break the seal is up to you.]
 
 We took the train into the city from her house in Brooklyn. On Houston Street, I helped her over the fence, and then up through that second-floor window.
 
-A year had passed. It had all changed. Plaster fell from the walls and ceiling of Bowery Manor. Everything was covered in the dust of neglect. We climbed the stairs to the roof only to find the rooftop doorway completely bricked up. Our entranceway on the bottom floor had also been sealed, the cut chains of our old door lying amidst the other moldy piles on the ground.
+A year had passed. It had all changed. Plaster fell from the walls and ceilings of Bowery Manor. Everything was covered in the dust of neglect. We climbed the stairs to the roof only to find the rooftop doorway completely bricked up. Our entranceway on the bottom floor had also been sealed, the cut chains of our old door lying amidst the other moldy piles on the ground.
 
 It makes me uncomfortable, this building that I’ve come to associate with that devil-may-care season. With her. This building that once stood alive and intense now a relic exuding the still breath of lifelessness.
 
 Out on the grid of streets, the city was in the process of spending millions of dollars to turn the old Chelsea Highline into a park. Around the corner, CBGB’s had lost their fight to stay open and was now an art gallery.
 
-Our old bedroom showed signs of use, by who we didn’t know. But our old empty bottles and scavenged photographs, a little more dusty, remained on the shelves. The old cassette with the Harry Nilsson songs was still there, as well as the pieces of the checkers set we had won at the Coney Island arcade.
+Our old bedroom showed signs of use, by whom we didn’t know. But our old empty bottles and scavenged photographs, a little more dusty, remained on the shelves. The old cassette with the Harry Nilsson songs was still there, as well as the pieces of the checkers set we had won at the Coney Island arcade.
 
 Early the next morning, I climbed out of bed. Walking through the main room, past the piano, the couches, the paintings, I climbed the loft, leapt across the gap and sat on the ledge of the large open space where the window used to be. A monstrous building, all glass and polished metal façade, now stretched across the horizon right across Houston, where that large pit had been the year before. And on the ground level of that building, stretching the length of the block, was a Whole Foods.
 
@@ -2035,7 +2046,7 @@ We left Bowery Manor, climbing back out of that second-floor window, jumping bac
 
 ### …Til It Falls Apart
 
-The next time I would see Bowery Manor would be in a postcard The Captain sent me of a picture he had taken. In the picture, a bulldozer sits in a dirt lot, that back lot through which we had peeled back the fence and snuck through in order to get to our entrance. The brick façade of the building’s rear stood in an incomplete state of demolition.
+The next time I would see Bowery Manor would be in a postcard The Captain sent me glued to the back of a picture he had taken. In the picture, a bulldozer sits in a dirt lot, that back lot through which we had peeled back the fence and snuck through in order to get to our entrance. The brick façade of the building’s rear stood in an incomplete state of demolition.
 
 I rode my bike with that picture to the cement ruins at the river’s edge of the town that I was living in then. Climbing and sitting atop those ruins, I wondered of the ghosts of Bowery Manor. Of where the ghosts go when all that is familiar to them has been taken apart.
 
