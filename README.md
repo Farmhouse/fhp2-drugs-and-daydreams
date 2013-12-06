@@ -156,15 +156,24 @@ where we split off from Sharky. ‘You wanna meet somewhere tomorrow?’ I asked
 
 The coast of Oregon varies so greatly from one part to another. Over the course of a couple hours, it would feel like we were in totally different worlds. We had already emerged from tiny farm towns into touristy beach cities. When we woke up this morning, we began our ride in a town just south of Waldport. While we overheard the conversations of the drivers and the gas station owners (who were also the attendants and mechanics) asking each other about the others’ family and plans of vacations… you know, that sort of small town Mayberryesque atmosphere. Leaving this environment, we began to head up into the hills, through amazing lush green mountains overlooking the ocean. We made more than a few stops just to gaze off and lose ourselves in the sounds of waves crashing against the cliffs which lined the shores. It was still morning, and the sun had not yet peaked over the mountains, and the crispness of the air felt so soothing blowing against my sweaty body. Everything seemed that much more fresh. Somewhere along the way, we turned off from the highway and onto an old road that had been closed to automobile traffic, making the ride through the trees that much quieter and more relaxed. We pulled into a cove that had trails leading down to some tidepools, and a rock formation called the Devil’s Churn. The Devil’s Churn is pretty much a giant crack into the cliffs that goes from being empty to violently full of water with each wave that comes in. Its end is in a small dark cave full of rocks the size of bricks, which are thrown up and down as each wave comes in, making the sound of one of those wooden rainmaker tubes. We sat there for a long time, just staring at the water and listening to the rocks. The forested areas of the Oregon Coast I remember as being one of the most beautiful environments I have ever seen, and the Devil’s Churn is one of the reasons why.
 
+> >
+
+
 For the last couple days, The Captain had been talking about a trail that someone had told him about. It was called the Hobbit Trail, and he was told to look for the sign on the side of the road. His sources told him that it was just south of the city of Waldport. Well we had woken up in the morning south of Waldport and had been riding for several hours, and we hadn’t seen any signs. We just figured we had passed it. Somewhere along the road, I had the urge to relieve myself, so I pulled off onto a small shoulder on the highway and ran into the forest to make use of the facilities. I passed a small sign, completely illegible from the road… Hobbit Trail. Wow, the great things you stumble upon while urinating. So we pulled our bikes off the road and walked off into the trees. My god, I cannot even begin to describe the atmosphere. The trail headed down to a small sandy cove which was completely enclosed by cliffs. I imagine that if a heaven existed, it would be the Hobbit Trail and the beach underneath.
 
 The Hobbit Trail is a different world. Not only are each of your senses in a trance from the absence of traffic, neon lights, buildings, etc., but they are absolutely overcome with the beauty, the brilliance of the colors, the clarity of crashing waves and chirping birds, the sun on your eyelids and the sand blowing gently against your legs, the air so fresh, the sky so clear. This put both of us into a state of ecstasy. This was the absence of all forms of civilization, the absence of all of the constraints and dulled senses that come with living in the city. It’s funny how walking 10 minutes away from the highway transports you into a new dimension, so brisk and refreshing, where there’s a feeling of togetherness with everything around you. I haven’t really described many of the features of the trail and the beach which make this area so unique. All I can say is that all of us have those places where we can go to think, or talk, or daydream, where we can just sit forever. Personally, I love the beach. Especially in the evening when it’s empty and lit only by the moon. The Hobbit Trail is that magical place for me, only on the most vestal level. Both The Captain and I liked the place so much that not only did we promise to come back to it again sometime, but we decided that we were going to come back and live there for a couple weeks. We’d run around naked and live on berries and insects. It would be the life!
 
+> >
+
+
 From the Hobbit Trail area, we headed downhill, through a tunnel, and came upon the next roadside attraction staring us down and daring us to conquer it. This place was the Sea Lion Caves, some type of natural underground caves where hundreds of sea lions live. We walked inside, scoffed at signs advertising the admission price, and came up with a plan. We asked nicely for a free trip: Nope. We looked for the employees’ doors: Nope, you need a key. We walked outside and looked for a space in the fence that we could hop: Nope, we would have to climb a fence and then trample down the side of a hill in broad daylight. I believe brute force would have been the next option, but we gave that idea up pretty quickly, due to a likely arrest being a bit too much to pay to gawk at sea lions. This was the Monster Squad’s first defeat, though it wasn’t so devastating as to keep us from hopping back on our bikes and riding on.
+
+> >
+
 
 We climbed back up to our bikes and continued through the misty hills toward wherever it was that we were going. We spent the next few hours riding amongst huge trees, weaving closer to and further away from the cliffs which stood over the rocky shores, south on highway 101.
 
-### Florence… What the Fuck?!
+#### Florence… What the Fuck?!
 
 The 101 started its descent from this point and in the next hour, the trees and cliffs and ocean were gone and replaced by a scenery of trailers, sand, and not too much else. We entered the city of Florence. The first thing we saw was a recently built Fred Meyer store, which had a huge sand dune towering above the height of the store behind it, separated only by a brick wall along the back of the property. It was straight out of a Sci-Fi movie. It was interesting, in a nearly creepy way, which would be my impression of the entire city. We parked and went into the store. No cameras! It was one of those places where you were suspicious because it was too easy. I trust these stores even less than the ones that are full of cameras. Either way, I grabbed some Clif-Bars, bagels, and even some vegan ice cream sandwiches, and walked out with no problems. Further into town, there was a Thriftway that also happened to be giving out free groceries! Whatever you could conceal was yours. I filled up on Odwallas.
 
@@ -172,17 +181,23 @@ We went to a park at a middle school to go through our stuff and lighten our loa
 
 Florence is a weird city. There are very distinct sections, such as the sprawl (the Fred Meyer, and the trailers just outside of town), the industrial area (gross heavy industry, near the highway junction), and the old town area (exactly what it sounds like). The entire city is pretty isolated, as it seems there’s really no other city anywhere nearby. The people we spoke to were just weird, though maybe that’s just my big-city upbringing clashing with these podunk townsfolk. It was a nice city, but at the same time, I wouldn’t be missing it when we were gone.
 
+> >
+
+
 The sand dunes slowly faded back into the forest. There were some areas where 40 foot tall dunes touched the side of the highway, and there were trees growing out of the sandy slopes. I think living in this area would be the equivalent of living anywhere else while constantly being under the influence of hallucinogens. I’m serious, that description really is accurate. We made it into the mountains and slept just off the side of the highway right next to Elbow Lake.
 
-We started the next morning with a long downhill ride which brought us into
+> >
 
-### Reedsport.
 
-We stopped at a Safeway in town where I flipped through the new Q Magazine which had Depeche Mode on the cover, then walked out with some oranges and chocolate soy milk. We stopped in Winchester Bay to cook up some of the Boca Burgers that The Captain had looted. As much as I was romanticizing the whole hobo aspect of this trip, I think I have to admit that there is a line between bare necessities and luxury, and I think that at the point where you’re looting vegetable oil so that you can cook your food, you’re probably not quite completely in the category of ‘roughing it’. But maybe that’s not a bad thing anyway. Winchester Bay was also the first time we consulted The Book. Bicycling the Pacific Coast, which I’ve seen touted as the bible amongst those who ride down the coast. Our first use of it ended up getting us lost. So we turned around and rode the two miles back to the road we were supposed to be on. Strike one, Book. Back on the 101, we headed south again.
+The next morning started with a long downhill ride which brought us into
+
+#### Reedsport.
+
+We stopped at a Safeway in town where I flipped through the new Q Magazine which had Depeche Mode on the cover, then walked out with some oranges and chocolate soy milk. We stopped in Winchester Bay to cook up some of the Boca Burgers that The Captain had looted. As much as I was romanticizing the whole hobo aspect of this trip, I think I have to admit that there is a line between bare necessities and luxury, and I think that at the point where you’re looting vegetable oil so that you can cook your food, you’re probably not quite completely in the category of ‘roughing it’. But maybe that’s not a bad thing anyway. Winchester Bay was also the first time we consulted The Book. Bicycling The Pacific Coast, which I’ve seen touted as the bible amongst those who ride down the coast. Our first use of it ended up getting us lost. So we turned around and rode the two miles back to the road we were supposed to be on. Strike one, Book. Back on the 101, we headed south again.
 
 Further down the road, we came to a huge bridge, where we stopped to eat some Clif-Bars. We walked around underneath the bridge a little bit, where we left a nice big Bike Punx! tag, then rode over the bridge into
 
-### North Bend.
+#### North Bend.
 
 North Bend was the first town on this trip where we saw any punks. It was just some kid with his dad, but he had a leather jacket with a big Germs patch on the back. P.F.R! We said what’s up and rode on.
 
@@ -192,13 +207,16 @@ We found the spot that he was talking about, but found that we couldn’t get to
 
 When we woke up the next day, we had a campground ranger waiting for us. They saw that we had slept in an area reserved for day-use only, and hit us for $4 each! (the price of camping without a car) This was the Monster Squad’s second, and most economically punishing defeat of the tour. This was gonna wipe out our budget for the next few days! We reluctantly paid, and left, swearing a blood-filled revenge.
 
-We spent the morning riding through Bandon, with a view of nothing but clearcuts. In Portland, I constantly see cut trees being shipped through the city either by trucks or on barges, but today, we spent the bulk of the morning riding through land that was nothing but stumps as far as you could see. The ride was pretty frustrating to say the least.
+We spent the morning riding through Bandon, with a view of nothing but clearcuts. In Portland, I constantly see cut trees being shipped through the city either by trucks or on river barges, but today, we spent the bulk of the morning riding through land that was nothing but stumps as far as you could see. The ride was pretty frustrating to say the least.
 
 Into Port Orford, and a Ray’s Groceries. Soy milk in the pants, Clif-Bars in the pockets, and we were out. At the southern end of town is Battle Rock, a piece of land that you could climb up on from the beach. On top of this rock are trees, flowers, and a couple footpaths. The Captain and I decided that Battle Rock is possibly the most perfect place in the world, even though its area probably doesn’t exceed a quarter of an acre. We later heard that every year, there are crazy parties here on the 4th of July. I imagine it would be a crazy place for a party since it was hard enough to walk around on the rock in daylight, sober. We made plans to move back here in the future.
 
 Down the highway was another little tourist stop called the Prehistoric Gardens. The idea here, apparently, was to take ‘life-size’ fiberglass dinosaurs and place them in the middle of a bunch of trees and a man-made creek, and then hype it up and charge too much money for people to walk around the path and look at. You weren’t even allowed to climb on them! Why people think it’s worth it to pay money to do this, I couldn’t understand. We asked the girl working if they’d let us in, and she said ‘no’. So we walked around in the gift shop. As we were about to leave, the boss went home for the day and the girl working came out and told us that we could ride our bikes through. We took advantage of the opportunity to have our pictures taken with the dinosaurs suffering from atrociously funky paintjobs (I’m talking neon-colored swirls on some of them). We rode away comprehending even less after we saw it why people would pay money to do that.
 
-### Gold Beach
+> >
+
+
+#### Gold Beach
 
 Evening was approaching, and I had a medley of NOFX songs in my head for going on like four hours as we came into Gold Beach. We stopped at a couple grocery stores.
 
