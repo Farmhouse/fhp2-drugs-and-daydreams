@@ -240,37 +240,55 @@ The sun was beginning to set, and we had to begin thinking about finding a spot 
 
 We found a spot on the beach to cook our pasta over a bonfire and stay for the night. Come morning, we couldn’t get out of this place and away from these people fast enough.
 
-### California!!
+> >
+
+
+#### California!!
 
 This was the 7th day of the Tour of Destruction! and the first day we had seen a cloudy sky. The ride south of Gold Beach was through dense forest all the way into Brookings, where we made a stop so that The Captain could have a spoke replaced on his bike. This gave us time to loot the Fred Meyer in town and enjoy a lunch of dry Ramen on the curb in front of the library. Once The Captain’s bike was fixed, we rode the last few miles to the Oregon/California border.
 
 By the time we saw the ‘Welcome to California’ sign, we were giddy with excitement. I can’t remember ever being so happy to be in California in my life, and I grew up in the damn state. We each cracked open our cans of Pabst that we had been carrying since the potluck back in Portland, and chugged our 12 ounces of warm barley-malt goodness. As Sharky used to say in the day-and-a-half before he disappeared, ‘just like an angel pissing on your tongue.’ Oh yeah. I missed Sharky’s drunken wisdom and eloquence. I asked The Captain where he thought Sharky was right now. ‘Not drinking Pabst at the border! Ow!!’ We finished the drinks, admired some of the tags by other bikers on the sign posts, and then left one of our own. If any of you ever happen to stop at the border, and happen to notice the MONSTER SQUAD ROCKS! written in huge black letters, that was us. On to California. Ow!!
 
+> >
+
+
 A few minutes into the state, we passed a billboard for ‘First Chance Liquor Store, 1 mile’ which I saw as we rode by was a small shack sitting by itself on the highway. A little further down the road was a billboard on the opposite side of the highway which said ‘Last Chance Liquor Store, 1 mile.’ Gotta love the ingenuity of those Californians.
 
 The first town we rode into was
 
-### Crescent City
+#### Crescent City
 
 where we stopped to relieve their Safeway of a few Clif-Bars. I made the observation to The Captain that you don’t even need a sign, you know when you’ve reached California by the generally trashy vibe we picked up on in the state. Down the road, we stopped at a picnic area where we cooked our pasta and watched the Crescent City skyline light up as the sun fell into the ocean. From our point at one end of the crescent-shaped bay, we could see the entire skyline’s length, from downtown Crescent City to the lighthouse at the tip of the coast, twinkling in the nighttime sky. Something about the wide open sky, with the moon gleaming down from above, wave after wave crashing into the shore with the celestial glow on their rolling white crests, the small fire crackling behind us, a line of small trees to one side of us, and the sand and water of the shore to the other, it was freedom. I think this was the first time it really hit me. We had no schedule, no deadlines to be anywhere or obligations to do anything. Nothing to worry about. We were sitting on an empty beach, just us and our bikes. I’d never been in a more physically beautiful place. The only perceivable sign of civilization was the glimmering skyline it provided across the water from us. Other than that, it was the two of us encapsulated by the enormity of the sky and the ocean and the meadow beside us. Nothing feels better after spending eight or nine hours riding a bike than sitting amidst a gorgeous scenery, letting the cool breeze blow against your face and massage your hair, while the crashing waves and glistening stars put you into a trance. You have a lot on your mind after physically exerting yourself so much throughout the entire day – every day for the last week – but somehow it all slips away, and for a short period of time, not a word was said. For the time being, even if only for an ephemeral moment, everything was perfect.
 
-### The Northern California Coast
+> >
+
+
+#### The Northern California Coast
 
 We awoke in a free campsite in Nickel Creek, which we were able to find in pitch darkness the night before. I ate my breakfast – if I remember correctly, it was around this point that my diet began consisting almost exclusively of Clif-Bars – and then walked along a trail which ran parallel to a small creek and offered a view of a couple small waterfalls. Eventually, we made our way back to the highway and immediately began an uphill ride. The atmosphere was nice – the highway ran right through a dense forest of redwoods – but it was hard to enjoy as there was only one lane going in each direction and huge logging trucks were constantly rushing by. I’m not sure what elevation these mountains reached, but they brought us above the clouds to a point where the mountaintops looked like islands resting on a white ocean. When we looked to the skyline, we saw nothing and it appeared we were riding along the edge of the world. Then we glanced just ahead of us and saw the clouds before we rode right through them on our way down.
 
-### Klamath, California… weeeeeeeeooooooohhhhh!
+> >
+
+
+#### Klamath, California… weeeeeeeeooooooohhhhh!
 
 On riding into town, we were greeted by a 40 foot tall fiberglass statue of Paul Bunyan, accompanied by Babe the Blue Ox. As it turns out, we were at the Trees of Mystery, another roadside attraction. We decided to go take a look around at how hard it would be to sneak in. It turns out that you pay as you leave, so getting in would be no problem. Once we were inside, we would have to sneak back out. We just stuck a stick in the doorway so that we could just walk back out through the entrance rather than going through the exit where the cashier was waiting. Ha! Another point for the Monster Squad. As for what was inside, the Trees of Mystery is pretty much some type of redwood freakshow – such as trees growing in the shape of lightning bolts or growing out of the branches of other trees. I can’t say that it was all that exciting. We just grabbed the coins out of their man-made ponds and left.
 
 On the opposite end of town was another little tourist stop called the Tour-Thru Tree, a giant tree whose trunk has been carved out so that cars could drive through it. We posed with our bikes and had some nice couple take our picture. South of Klamath was another one of those mountain ranges that just kept going. I swear that it’s going to be one of these long steep hills that finally makes me crack. It may only be a 30 or 40 minute ascent, but that’s a long fucking time when you’re going uphill, using all of your energy. I couldn’t grind my teeth any harder, and I’m sure every vein in my entire head was about to burst. Every curve, you have your hopes up that you will start going downhill around the bend, but then you see that the road continues to wind further uphill. Your arms are going numb because you’re pushing so hard. I don’t even remember what thoughts were going through my head on these hills, only the feeling that I was pedaling myself closer and closer to the brink of insanity. Then, finally, we reached the peak and had a chance to relax and let gravity take over. Past the mountains, the highway met up with the coast again, and we got to ride between redwood forests and salt-water lagoons. As the temperature began to cool off, we found a secluded day-use area where we could cook up some pasta and then we walked over to a spot that wasn’t visible from the parking lot and laid out our sleeping bags. With the last hour of daylight, The Captain and I sat on a log talking about everything – growing up, school (and our desire never to return), some of the better memories of our more punk years, as we watched the most angelic sunset.
 
-### The Destruction Cometh…
+> >
 
-First thing in the morning, we had a nice hill to ride up. I’m not sure why the trend started, but it seemed like we were greeted with a huge hill first thing every morning. I guess it’s probably because large hills don’t look too exciting in the evening after you’ve already gone 60+ miles. So we started on the hill. I’d say we hadn’t even made it a good ten yards from the base of the hill, my pedals came to a halt. I looked down to see that my front deraileur had completely busted. So I’ve lost five out of my ten speeds. No problem, at least it wasn’t my rear dearileur that broke (that would come later), that would have left me with only two speeds. So I chose to stick with my lower five gears, which makes climbing pretty easy, though it sucks when you’re riding along the freeway on a level grade and you have to pedal like crazy just to go the normal speed. Oh yeah, I forgot to mention that while I was taking off my derailleur… a whopping ten yards from where we started riding… with this huge hill we’d have to climb… it began to rain.
+
+#### The Destruction Cometh…
+
+First thing in the morning, we had a nice hill to ride up. I’m not sure why the trend started, but it seemed like we were greeted with a huge hill first thing every morning. I guess it’s probably because large hills don’t look too exciting in the evening after you’ve already gone 60+ miles. So we started on the hill. I’d say we hadn’t even made it a good ten yards from the base of the hill when my pedals came to a halt. I looked down to see that my front deraileur had completely busted. So I’ve lost five out of my ten speeds. No problem, at least it wasn’t my rear dearileur that broke (that would come later), that would have left me with only two speeds. So I chose to stick with my lower five gears, which makes climbing pretty easy, though it sucks when you’re riding along the freeway on a level grade and you have to pedal like crazy just to go the normal speed. Oh yeah, I forgot to mention that while I was taking off my derailleur… a whopping ten yards from where we started riding… with this huge hill we’d have to climb… it began to rain.
+
+> >
+
 
 We continued down the highway, which at this point had turned into a multi-lane freeway, in the rain, until, like some type of heavenly doorway that releases rays of light and a gentle symphonic ‘ahhhhh’ sound when you approach it, we came to
 
-### Arcata.
+#### Arcata.
 
 Previous, all I knew about Arcata was that there were a bunch of hippies there. This turned out to be true, but despite this, the town turned out to be a utopia. About ten minutes outside of town, the rain had stopped. We rode into the city and stopped at a large health food store to stock up. We talked to a few people and didn’t immediately get a weird impression. This city was already looking better than 80% of Oregon’s small coastal towns. In fact, the people in Arcata were really nice, and the hoboes were the most helpful I’ve ever met. Arcata definitely put me in an optimistic mood. I got directions to a bike shop where they wanted $5 for a new derailleur. I was skeptical, that would blow my budget for a few days. But in the end, my good mood, coupled with the fact that there was at least another 400 miles before San Francisco, made me splurge.
 
@@ -284,27 +302,35 @@ We ended up in the Plaza, which, from what we were told, sounds like the happeni
 
 As we were walking away with our bikes, an enthusiastic hippie noticed the loads on our bikes and started talking to us. His name was Huck, and he was an ex-logger, current hippie, who told us of several of his own bicycle trips, and even walking trips throughout northern California. He began to tell us everything about Arcata – about the people, the places, the local environmental movement, and gave us a list of possible places to camp out for the night. We told him of our planned route, to which he replied, ‘No, no, no, no!’ and suggested a way he thought would be a lot safer. It sounded good to me, since we had planned on crossing a mountain range which was 5000 feet tall, and Huck’s route would take us over a mountain range 3000 feet tall. We talked for a while, then thanked him for all of his help and went in our different directions. After it got dark, we rode into the wildlife preserve on the southern end of town where there were a couple covered shacks for birdwatchers. We laid out our bags on the dry wood floor, and sat, eating looted tofu, laughing, and admiring the skylines of both Arcata in front of us and the city of Eureka behind us.
 
-### Into The Sky…
+> >
+
+
+#### Into The Sky…
 
 Woke up perfectly dry and left Arcata with a bag full of food, a working front deraileur, and a promise to return, and maybe even live on top of that Safeway. We got back on the 101 north and turned east on highway 299, our first separation with the coast. This was the route that Huck had suggested. For the next two days, we climbed and climbed. We passed through a couple small towns nestled in the mountains, such as Del Loma, whose sign advertised a population of 30, and Willow Creek, the most colorful town I’ve ever seen, though it consisted of only about ten blocks along the highway. We passed herds of grazing elk, passed by deer standing only a couple feet away, stopped at some of the most exhilarating vista points, rode some downhill stretches where we exceeded the posted speed limit, and slept one night on the Trinity River.
 
-### …And Back Out Again
+> >
+
+#### …And Back Out Again
 
 The highway eventually brought us to the peak of the Scott Mountains, elevation 3200 feet. We celebrated at the peak by cracking open some vegan chocolate bars, then started the descent. Eight miles down through extremely curved roads, eyes watering, at times we were pushing 40 miles per hour. It was like a roller coaster ride, only much more exhilarating and much more real. This was by far the most fun hill I’ve ever ridden down. At the bottom of the hill, we turned off into Whiskeytown Lake for a naked dip in the water. While we were in the lake, we could hear the drunken yelling and joking of a group of people who eventually made their way over to the shore of the lake with their beer, lawn chairs and kids. This was the epitome of the stereotypical white trash family; completely drunk, hootin and hollerin, wrestling with their kids to cheers of ‘weeeeeeeooooohhh!! Kick his ass, Bubba!’ They had a boy who looked about maybe 11 or 12 years old with blond hair cropped on the sides and a bit longer on the top who was getting the snot beat out of him by a girl who looked a couple years older than him. Just totally getting thrown into the water and kicked, while their parents on the lawn chairs just laughed and cheered. It was great.
 
+> >
+
+
 A little further down the highway, we rolled into the city of
 
-### Redding.
+#### Redding.
 
 The first building we passed was a grocery store, so we made a stop there. I spent the next hour grazing on pineapple rings and vegan chocolate drops from the bulk bins while reading skateboard magazines. I was going to like this city. 
 
 Exploration brought us into the downtown area, where the streets were closed and there was a street fair going on. We hopped off our bikes and walked into the crowd, but closer inspection told us that this street fair was to celebrate the city’s annual Rodeo Week. No no no! We jumped on our bikes and got out of there pretty quickly. Somehow, we ended up near the river and the convention center area, where stadium lights and a voice on a loudspeaker told us that there may be something interesting going on. We ended up riding up to the rodeo itself. NO NO NO! As if the line dancing wasn’t bad enough. Call me a city boy, but the whole I’m-gonna-wrestle-animals-to-show-how-tough-I-am thing just isn’t my scene. We couldn’t get away quick enough.
 
-Now I knew that a couple of my cousins live in Redding. Each Christmas - the only time I ever see them – we always conclude our smalltalk by them telling me to stop by Redding sometime and see them, and then I’d say ‘yeah, definitely sometime this year’ and then make absolutely no attempt to. Well, after searching the phonebook, I found them and gave em a call. My cousin, Kateri, was actually very excited to hear from me and invited me right over.
+Now I knew that a couple of my cousins live in Redding. Each Christmas - the only time I ever see them – we always conclude our smalltalk by them telling me to stop by Redding sometime and see them, and then I’d say ‘yeah, definitely sometime this year’ and then make absolutely no attempt to. Well, after searching the phonebook, I found them and gave em a call. My cousin, Kateri, was actually very excited to hear from me and invited us right over.
 
 I should explain my cousin, Kateri. She is about ten years older than me, so even growing up, we never really identified with or even really talked to each other. She works for the city tourism and events board, owns a house in the suburbs, has two dogs, goes to church, and overall, she and her husband are about the nicest people in the world. That night, we stayed up pretty late, not so much catching up as introducing our lives to each other for the first time. Finally, she said she should get some sleep before work in the morning, and it was way past the time I had been used to going to sleep at lately – which was about 7:30 at night.
 
-The Captain and I decided to spend the day in Redding, and thanks to Kateri, we had a stack of maps and brochures explaining every possible recreational activity to do within a 50 mile radius. Our first order of business was to forage for nourishment. Holiday Market and Safeway helped us out a little bit on this end. Chocolate soy milk, vegan ice cream, trail mix, bagels, all urban-wildcrafted!
+The Captain and I decided to spend the next day in Redding, and thanks to Kateri, we had a stack of maps and brochures explaining every possible recreational activity to do within a 50 mile radius. Our first order of business was to forage for nourishment. Holiday Market and Safeway helped us out a little bit on this end. Chocolate soy milk, vegan ice cream, trail mix, bagels, all urban-wildcrafted!
 
 The pace today was pretty slow – no plans, no distance to cover, really nothing more than a handful of places which sounded interesting. The arboretum, the bicycle trail that ran along the Sacramento River, an abandoned mine structure which looked like a somber cement labyrinth juxtaposed by the museum and playground behind it. We explored each of them, ‘exploring’ meaning walking around and sipping soy milk while laughing at the funny stories or going off into some fantastic ‘what if…’ that would be brought up from something walked by or some comment that we overheard. Although the entire trip was pretty laidback, it was nice to have a day to completely relax. Being around the same person for two straight weeks had obviously been getting to both of us, as the half-serious vigor of each of our smartass personalities were now being directed toward each other more and more frequently. Today, we were just riding around enjoying the scenery. Eventually, we ended up riding along the Sacramento River on a trail that used to be the path that the railroad used, taking us through an old train tunnel, which brought us to the top of Shasta Dam. We stopped to take a look down at the river, and off in the direction of Redding. It seemed to be a point where the entire bike trip came into perspective, a peak to stop back from out two weeks of constant motion, and just take a deep breath and think about the fact that somehow we had jumped on our bikes in Portland and ended up here. I said before that my bike wasn’t exactly the toughest piece of work, and I had never expected to make it out of Oregon. This was one of those times where the breeze felt so nice and life looked so beautiful. I was dirty and sore as hell, not to mention the sunburns and the fact that Clif-Bars and dry Ramen made up 60% of my diet, the amount of money I was carrying would not have even paid for one month’s rent in Portland. And I’d never felt better.
 
