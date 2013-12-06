@@ -512,9 +512,11 @@ Morning came, and we stopped in a Safeway to loot breakfast, then rode along a b
 
 A bit further along the way, we came to a botanical garden. This would give us a nice opportunity to get off our bikes. The gardens were huge, with a creek running through the middle and plenty of quiet secluded trails.
 
+> >
+
 From the garden, it was downhill to
 
-### Berkeley
+#### Berkeley
 
 We rode to meet up with Belinda, who went to art school in Berkeley, and had just gotten out for the summer. She was definitely an art student. Her walls were covered with photobooth pictures and black and white posters, which looked like the products of hours upon hours at Kinko’s. She also had a nice selection of 80’s records. Sweet! She explained the situation with her housemates. Ordinarily, she shared the house with one other person, but at the moment, he was off traveling, so now there were three people living/staying there, and none of them could really explain the situation much beyond a ‘…yeah, so now I guess I’m living here. I don’t know…’ Oh well, worked for me. The three housemates were Rosey, (who talked shit on every band that would come up in conversation. And bands were nearly all the conversation.) Jazz (who kept us entertained with his crazy freestyling, but was a bit too into the whole mod fashion) and Beatbox, (who could do a techno beat with his throat and hum a melody at the same time) who had just moved to the bay as a band. They were quite the music obsessive types all around. They were all into the whole emo/indie fashion too, complete with a bottle of ‘Bed Head Shampoo’ sitting in the bathroom. Though they did have an impressive collection of keyboards, (along with an impressive collection of stories about how they’ve acquired all their equipment for free) and their band is quite the new wave number, drum machine and everything.
 
@@ -522,11 +524,13 @@ They were out of food at the house, so we all left to go shopping. Belinda had a
 
 We got back to the house where we dove into the bagels and beer from the shopping trip. In the evening, a few people came by, and we got a little dance party going. The guy from Trader Joe’s came by, we started talking about our bike trip. It turns out he rode from Olympia, Washington down to Arcata the year before. Hell yeah! Up the fuckin Bike Punx!! The stereo was playing A-Ha and Cyndi Lauper, the people were each trying to see who could act the most pretentious. The party went on for a while, but I had been up since 6 am and was exhausted. It was probably my anti-social tendencies, or possibly my belly full of Carlo Rossi, that led me to grab my sleeping bag and head for the lawn in the backyard, where I fell asleep beneath the stars and to the drunken laughing coming from the porch in front of the house.
 
+> >
+
 In the morning, The Captain and I left to explore Telegraph Ave. It’s really nothing more than a trendy boulevard you would expect to find in a college town. People’s Park was nice, with its murals, garden plots and free pile. And I did find the Steve Perry solo record for a dollar in one of the record stores. Other than that, there was really nothing exciting about the street. We headed out to the bay, where we parked our bikes and walked to the end of the Berkeley pier, which gave us an amazing view of the entire Bay Area. From there, we rode off to search for the old Albany landfill. This was a large piece of land in the bay connected to Albany by a stretch of land wide enough for two roads. It used to be used as a landfill, but has since been covered in dirt, and has a lot of shrubs and bushes growing on it. It seems like it’s used as a place for the locals to take their dogs for a walk on its dirt paths now more than anything. But apparently, a lot of people have brought in materials to build shacks and have lived in the landfill over the years. The first thing we came across was a castle built with cement and drywall, complete with a window looking out at the bay and a staircase that you could climb to get on top of the roof. Whoever built it had even spent some time landscaping the area around it. A white castle sitting on the shore, it was straight out of the pages of Sunset Magazine, only on a much more DIY level.
 
 We wandered around the landfill a bit more. On the other side of the landfill was an art gallery, with beautiful intricate paintings done on plywood resting on stands lining the side of a dirt path. The landfill was like a place out of a book, only with a lot of mosquitoes, and I wondered why everyone in the city spent their time on Telegraph rather than a place like this. The sun was beginning to set, so we grabbed our bikes and headed back to the house. We arrived to another party at the house, which lasted until sunrise. I was able to get a little bit of sleep before morning, when we hopped on our bikes and left for the BART station to go to
 
-### San Francisco.
+#### San Francisco.
 
 Neither The Captain nor I had ever ridden around San Francisco on bikes before, so that was the plan for today. We started up Haight Street and through Golden Gate Park. Every time I’m in this city, it seems like I find myself at the botanical gardens. It’s a relaxing place, and for some reason, it always gives me a sense of ‘just-passing-through’. I think SF is a disgusting city, but I do enjoy it in one- or two-day increments. We left the garden and continued riding in the direction of the coast, and eventually ended up falling asleep in a garden beneath one of the windmills.
 
@@ -534,7 +538,11 @@ We woke up and went to get burritos at a small place across the street from Miss
 
 I eventually made it to 3rd and 24th only to find mannequin parts and some goopy red stuff everywhere, as well as a live goat, and some people loading equipment into a van. ‘How long ago did the show end?’ I asked. ‘Just five or ten minutes ago’. Damn, I went back to the BART station and rode back to Berkeley for the night.
 
-### ‘The Monster Squad Fucking Rocks’
+> >
+
+#### ‘The Monster Squad Fucking Rocks’
+
+> >
 
 Day 30 – I woke up on a futon in Belinda’s kitchen. Today was to be the final day of the Monster Squad ride. San Francisco had been the planned ending destination since the beginning of the ride, though I never imagined I’d make it this far. So it seemed surreal to emerge from our (free!) BART ride onto the streets of San Francisco.
 
@@ -548,9 +556,13 @@ The Captain knew of a good vegetarian restaurant in Chinatown, so we went there 
 
 The sun was setting and the Tour of Destruction was coming to a close. We celebrated with a final meal of dry Ramen and Bacardi Rum.
 
+> >
+
 This was my final journal entry…
 
 ’30 days, a total of 1,169 miles, countless Clif-Bars looted, all-in-all, maybe about $40 spent. No serious defeats, and lots of fucking fun! I write this now in our bunker, home for the night, beneath the trees, with a crisp breeze blowing the cool air around me. This last month has been fucking amazing. This trip really has instilled an aversion toward the whole work-rent-die thing. Nothing feels better than sleeping beneath the trees and stars, a new environment everyday – new people, new places. Exploring places I have heard about, discovering new places that I haven’t. The only problem is that there is so much to do, that the fun is overwhelming. So as darkness falls, and I have to squint to see my writing, I’ll end this. This is life. No deadlines, no media, only a bare world to discover. This is living.’
+
+> >
 
 So maybe that was a bit cheesy, that’s what writing with a belly full of Bacardi looks like I guess. But even without the generous helping of alcohol, I can’t disagree with any of it.
 
@@ -573,9 +585,10 @@ More than once, I’ve heard people say ‘I wish I could do what you’re doing
 Time has no relevance outside of a structured, regimented society. Life takes place not on a sequential timeline, but in an endless euphony of opportunities – a harmony that the current structure does everything it can to keep out of reach. I find no pleasure in succumbing to constraints and convention, and I’ve found that when fun is presented to you with a price tag of any kind, it has been co-opted, and you can hardly be surprised when it turns out a bit less substantial than its hype makes it out to be. Like I said, we pay no one and make no apologies. We were being guided only by our impulses and whims. What was exciting yesterday will be forgotten tomorrow. We were living in the moment, the past and future so distant that they may as well have been nonexistent. Our whole world was what was before us and we were going to make that the most beautiful world that has ever existed. But then, why would it ever be any other way.
 
 ***
-***
 
 ## Here Civilization Ceased
+
+***
 
 I awoke on a hill of grass and leaves amidst a sky of a thousand hidden birds chirping. The tall lanky trees which last night stood silhouetted before a moist gray horizon appeared a dense forest of eucalyptus trees beneath a morning sky clouded with fog. The smell of eucalyptus surrounded me… eucalyptus and my own damp sleeping bag.
 
