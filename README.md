@@ -930,6 +930,8 @@ Tonight I lay down, my armor broken, my mouth tasting of blood. I have no money,
 
 A story.
 
+> >
+
 The Atlantic coast. Autumn. Craggy shores and the last of the blue skies.
 
 The most accurate metaphor I’ve heard for travel is comparing it to a love affair.
@@ -941,6 +943,8 @@ So many forget that the body of a lover can’t be conquered. It can be explored
 A love affair thrives upon shattered rules and shattered roles. Upon a whirlwind that comes by surprise and leaves everything in its path upturned, transformed. Clarity in the midst of cacophony.
 
 It requires that you give yourself in full. No shortcuts, no voyeurism. This isn’t the stock market. You cannot give a little and hope for a lot. Nothing can be touched through a screen of glass.
+
+> >
 
 A story.
 
@@ -959,7 +963,6 @@ This is how a love affair begins.
 This is how my story begins.
 
 ***
-***
 
 ### Hearts Like Wheels
 
@@ -977,9 +980,7 @@ That fuchsia and gold streaked the sky. The horizon becoming electric, the water
 
 The dawn reveals the colors of the trees that encapsulate this cove. Last night’s wall of black becomes a mesh palisade of deep greens, branches trembling in the morning’s first wind.
 
-A ferry chugs across the lake. The rower has turned and is making his way back toward the shore. I turn around. Above the trees the sun has come up, its light uncovering the single path that brought us down to this sandy cove, illuminating a sky painted with clouds. Around us trees
-
-displaying the signs of the season, leaves of yellow and amber, hints of crimson and rust. Gold as memory, red as wine.
+A ferry chugs across the lake. The rower has turned and is making his way back toward the shore. I turn around. Above the trees the sun has come up, its light uncovering the single path that brought us down to this sandy cove, illuminating a sky painted with clouds. Around us trees displaying the signs of the season, leaves of yellow and amber, hints of crimson and rust. Gold as memory, red as wine.
 
 Artemis is awake now, packing up her bags. Beside her are our sleeping bags, sandy from the night. And behind these, our bicycles, last night’s moisture clinging to the frames, sparkling in the sunlight.
 
@@ -1006,6 +1007,8 @@ There is no other way.
 ---
 
 Church Street. Burlington, Vermont.
+
+> >
 
 The clocktower atop the Unitarian church chimes the hour, and even here, several blocks away, the ringing reverberates off of the modest glass storefronts and brick facades, echoing through the New England morning.
 
@@ -1041,17 +1044,17 @@ Anything but still.
 
 ---
 
-> …in California, we sleep in a place where the freight trains pass and the earth responds with the movement of the sea. 
+> *…in California, we sleep in a place where the freight trains pass and the earth responds with the movement of the sea. *
 > 
-> Movement.
+> *Movement.*
 > 
-> It was a question. A pattern that would write itself over time.
+> *It was a question. A pattern that would write itself over time.*
 > 
-> We stole the fruit off of the prickly pear cactus and revealed fragments of our pasts through florid lips. We circled the city on bicycles. The city: Esperanza.
+> *We stole the fruit off of the prickly pear cactus and revealed fragments of our pasts through florid lips. We circled the city on bicycles. The city: Esperanza.*
 > 
-> What I knew was the sea. Nothing, or rather, no one, could keep my attention as she could. 
+> *What I knew was the sea. Nothing, or rather, no one, could keep my attention as she could.*
 > 
-> You came with nothing. We left with each other. Bound for the desert.
+> *You came with nothing. We left with each other. Bound for the desert.*
 
 ---
 
@@ -1115,7 +1118,11 @@ In my ears I hear a heartbeat. My head throbs with my racing pulse, while I seem
 
 Stop.
 
+> >
+
 There is a danger in allowing the momentum of memory to lead one to repeat the crimes of the historian. Words fall into sequence – they always have – and mask time as a linear event.
+
+> >
 
 History:
 
@@ -1124,6 +1131,8 @@ History:
 2). The past as written by the winners.
 
 3). Only so many stories and time.
+
+> >
 
 And stories, like time, are never so straightforward as the narration leads us to believe.
 
@@ -1137,7 +1146,6 @@ Tear out the final page, like a brick to the hourglass, and where the hours fall
 
 Now begin again.
 
-***
 ***
 
 ### Silver Cities
@@ -1166,6 +1174,8 @@ Broken glass cracked under our footsteps as we rolled the edge of the chainlink 
 
 We entered the building with our flashlights on. Keys opening the heavy padlock on the chain that held a large metal makeshift door in place. Trains running beneath the city shook the building in its silence. Three stories up the stairs; the elevator was out, I looked and could only imagine for how long. The walls smelt of must, honks from the street drifted in. I followed The Captain’s light into the kitchen, lit by a lone suspended bulb.
 
+> >
+
 This is an old city.
 
 Our footsteps land somewhere between siren echoes and trembling blue stars, suspended across streets that have balanced with hyperboloid tension between deceit and desperation. Even empire needs its performance, and here is where it came to satisfy those desires when it went off the clock.
@@ -1178,9 +1188,15 @@ In the past the theatres of this district rivaled those of Broadway, though, as 
 
 Sirens echo throughout this noiseless building. Light moves in ephemeral rays through the gaps in the boarded windows. Outside the sounds of the city swirl around. Traffic, yelling from the bar, people walking along the sidewalk behind the building. The Lower East Side is fashionable now, the desperation kept out of view. Putting my bags down, we traced cavernous darkened rooms and stairwells to the roof.
 
+> >
+
 This is an old city.
 
+> >
+
 The theatres eventually closed. Economy, arson, incarceration, shady dealings; all weight put upon that tension. The evolution of these streets is the evolution of urban renewal. And like walking amidst a doomed populace, many of these buildings are simply demolition dates contained on paperwork atop midtown desks.
+
+> >
 
 But what is paperwork to some are castles to others.
 
@@ -1198,13 +1214,13 @@ We talked a bit more, but The Captain had a meeting he needed to get to, and I w
 
 ---
 
-> It was the way you applied your lipstick -  always a tone of heartstopping red – and wiped the excess onto the wall outside the bar. You were the seediest streets in the wealthiest of towns, a dancer on the tightrope taut between fragility and madness.
+> *It was the way you applied your lipstick -  always a tone of heartstopping red – and wiped the excess onto the wall outside the bar. You were the seediest streets in the wealthiest of towns, a dancer on the tightrope taut between fragility and madness.*
 > 
-> The time stretched the boundaries of intensity, though the boundaries were never an object. Scaled with no thought, though, humorously enough, too much effort.
+> *The time stretched the boundaries of intensity, though the boundaries were never an object. Scaled with no thought, though, humorously enough, too much effort.*
 > 
-> Into the fifth story room of the palatial and long-ago abandoned hotel on the shore. As a wing of the building crashed in upon itself beneath the weight of the storm. Waking on the roof of the antique shop. We had to brush the snow off ourselves before we climbed down into those neon streets. 
+> *Into the fifth story room of the palatial and long-ago abandoned hotel on the shore. As a wing of the building crashed in upon itself beneath the weight of the storm. Waking on the roof of the antique shop. We had to brush the snow off ourselves before we climbed down into those neon streets.* 
 > 
-> But I don’t remember the cold, only you.
+> *But I don’t remember the cold, only you.*
 
 ---
 
