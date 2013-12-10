@@ -1932,32 +1932,50 @@ But tonight…
 I close my eyes and the stars don’t disappear. They become more intense.
 
 ***
-***
 
-### Every Point  A Vanishing Point
+### Every Point A Vanishing Point
 
 We split into groups of two or three. First we’d need to climb a chain link fence, then walk past the guard shack where the night watchman sits listening to his radio.
-	When we’ve regrouped beneath the first large billboard faced to catch the traffic on the West Side Highway, and see that everyone has made it, we pull out beers, take a look over the Hudson River, and continue up the overgrown track bed of the abandoned Chelsea Highline, a set of elevated tracks that cut right through the heart of the Chelsea neighborhood. Every so often we encounter a hastily-built brick wall, put up by the city to prevent people like us from continuing up the tracks, as, on a previous visit, The Captain and I learned that many of the buildings adjacent to the disused railroad loading docks could be accessed from the tracks. Though each of the walls now had holes knocked into them or spaces dug beneath, and after pausing to help each other through, our group, who included The Captain, Zelda, and several others, continued through the elevated tracks through the west side’s hidden heart.
-	After a while, Zelda and I splinter off from the group, who has taken to lounging on a lit ledge overlooking the Union City skyline across the water. We climb the rickety ladders and tread across questionably stable catwalks above the docks. The tracks do not skirt buildings, but pass through the very middle of them, creating tunnels that stand three stories above the ground with loading docks on either side. We pause in an open area nestled amidst docks and solid brick walls of the neighboring buildings, bathed in the hushed glow of the city’s ambient night lights. I tell Zelda of my plans to leave after Halloween. She tells me if I stay one more day, she will take the day off from work.
+
+When we’ve regrouped beneath the first large billboard faced to catch the traffic on the West Side Highway, and see that everyone has made it, we pull out beers, take a look over the Hudson River, and continue up the overgrown track bed of the abandoned Chelsea Highline, a set of elevated tracks that cut right through the heart of the Chelsea neighborhood. Every so often we encounter a hastily-built brick wall, put up by the city to prevent people like us from continuing up the tracks, as, on a previous visit, The Captain and I learned that many of the buildings adjacent to the disused railroad loading docks could be accessed from the tracks. Though each of the walls now had holes knocked into them or spaces dug beneath, and after pausing to help each other through, our group, who included The Captain, Zelda, and several others, continued through the elevated tracks through the west side’s hidden heart.
+	
+After a while, Zelda and I splinter off from the group, who has taken to lounging on a lit ledge overlooking the Union City skyline across the water. We climb the rickety ladders and tread across questionably stable catwalks above the docks. The tracks do not skirt buildings, but pass through the very middle of them, creating tunnels that stand three stories above the ground with loading docks on either side. We pause in an open area nestled amidst docks and solid brick walls of the neighboring buildings, bathed in the hushed glow of the city’s ambient night lights. I tell Zelda of my plans to leave after Halloween. She tells me if I stay one more day, she will take the day off from work.
+
+> >
 
 Our bodies meet each other in the cool recesses of the tracks. 
-	Hands on hips. 
-	The metal of this industrial detritus creates a low groan in the night air. 
-	Kisses in the crease of neck. 
-	Overgrown grasses shake in the gusts of breeze, scent the air. I take my eyes off of her, the lights and silhouettes of surrounding towers streak the sky. An island of dark, lifted above city streets, joining one building to another.
-	Lie down. Cold knees. Fingernails run down back.
-	Forgotten Manhattan. Abandoned Manhattan. To the gamblers go the dynamic colors, the euphoric triumphs.
-	Light catches in the band of her silver hoop earring. Let my breath warm you.
-	In danger there is present something, desire the same as wildness. The skipped heartbeats…
-	Faster now.
-	…the choked breath and nerves on end, the quickened pulse, acute vision…
-	Take my hand.
-	…taste of blood, that this is what we can feel; these sensations, this moonlight…
-	Take it.
-	…This is what is potential. The reaches that leave the city hollow, empty. That reinforce that the world is ours. 
-	Now kiss me.
 
----
+Hands on hips. 
+	
+The metal of this industrial detritus creates a low groan in the night air. 
+	
+Kisses in the crease of neck. 
+	
+Overgrown grasses shake in the gusts of breeze, scent the air. I take my eyes off of her, the lights and silhouettes of surrounding towers streak the sky. An island of dark, lifted above city streets, joining one building to another.
+	
+Lie down. Cold knees. Fingernails run down back.
+	
+Forgotten Manhattan. Abandoned Manhattan. To the gamblers go the dynamic colors, the euphoric triumphs.
+	
+Light catches in the band of her silver hoop earring. Let my breath warm you.
+	
+In danger there is present something, desire the same as wildness. The skipped heartbeats…
+	
+Faster now.
+	
+…the choked breath and nerves on end, the quickened pulse, acute vision…
+	
+Take my hand.
+	
+…taste of blood, that this is what we can feel; these sensations, this moonlight…
+		
+Take it.
+	
+…This is what is potential. The reaches that leave the city hollow, empty. That reinforce that the world is ours. 
+	
+Now kiss me.
+
+> >
 
 We walk back along steel rails that shine beneath grasses that scratch at clothing. The others have begun walking back to the ground level. We’ll catch up. But first we stop at the edge of a building, alone, before this stolen view, before this hollow city.
 
@@ -1979,6 +1997,8 @@ The demolition of the amusement parks don’t destroy imagination, but only one 
 
 Maybe living as scavengers can last, I thought. Knowing that not everyone can do this, but if we can, then we have a responsibility to strike at capitalism’s vulnerabilities. And all of our wits and creativities not dulled by numbing work weeks and banal distractions exist for the sake of us living out our wildest dreams, of us putting a stop to those entities that hurt those that we identify with.
 
+> >
+
 The Captain and I left the Cloisters and raced down Broadway, passing stopped cars, weaving between busses and taxis and sidewalks, navigating our bikes through the night-time day-bright lights of Times Square, keeping hold of the crown of leaves that was part of my costume.
 
 We rode to a party in Brooklyn. Inside the house, bands played. The back patio became a swirl of dancing. Bottles piled up on the ground. People were squeezed tightly throughout the too-small space, bleeding out into the late night streets.
@@ -1989,21 +2009,23 @@ When the cops pulled up with their sirens on, their hesitancy was all it took. T
 
 One final burst of noise. Beer bottles flying across the roof of the car, and then the band unplugged just as another two police cars pulled up. Now the officers got out of the car and charged toward the house. But by then, kids were scattering, racing away on bikes, staggering with arms around each other down empty streets, walking away in various states of costume and undress, laughing loudly into the vigil sky.
 
+> >
+
 It’s my last night in New York. After pushing the day later and later, I realize that I need to leave before winter’s storms throw inclement tantrums over the whole of the east coast.
 
 ---
 
-But time is capable of playing tricks too.
-
-We had fantasized about living in an abandoned casino. There, on the shore, with the banner ripped from the Stone Pony, we moved into the upstairs room – you in silhouette, heels, formed pants, teased hair, lips, straddling the handrail before the sepia tone of boardwalk light. The burnt out lights say CASINO.
-
-The warmest day becomes the coldest night.
-
-We made our home in the river. The flood tides pushed beneath us while autumn burnt all of the trees along the embankment. But rootlessness on a river does not leave one still.
-
-And stories that will never be told.
-
-Impact left breathlessness in its wake and everything upturned when it settled again. It took a crash to brake the momentum. On a new day, tearfully, we each left Esperanza.
+> *But time is capable of playing tricks too.*
+> 
+> *We had fantasized about living in an abandoned casino. There, on the shore, with the banner ripped from the Stone Pony, we moved into the upstairs room – you in silhouette, heels, formed pants, teased hair, lips, straddling the handrail before the sepia tone of boardwalk light. The burnt out lights say CASINO.*
+> 
+> *The warmest day becomes the coldest night.*
+> 
+> *We made our home in the river. The flood tides pushed beneath us while autumn burnt all of the trees along the embankment. But rootlessness on a river does not leave one still.*
+> 
+> *And stories that will never be told.*
+> 
+> *Impact left breathlessness in its wake and everything upturned when it settled again. It took a crash to brake the momentum. On a new day, tearfully, we each left Esperanza.*
 
 ---
 
@@ -2016,7 +2038,6 @@ Maps. State maps. Bike maps. Subway maps. The maps brought us this far. Paper re
 You set the glass down on the pier’s rail. The rail lit in a line of orange light, the moisture glows. You walk over to me. The coordinates shift. The pier and beach are empty, the time is anyone’s guess. But who wants to guess. 
 
 Four weeks ago, I wanted you but you didn’t know it. Three weeks and we were kissing on the roof. The coordinates shift. 
-
 You keep walking and now I can see traces of your features. My sunglasses on your head that you won in a bet. Moisture clings to the lenses. The outline of your nose. That devilish grin.
 
 In Atlantic City, everything changed. In the dark of our bedroom, everything changed again. 
@@ -2047,11 +2068,15 @@ Only the land was stationary. At our feet the ocean pulsed. The collision of sea
 
 There were no other people in sight. The amusement park silent, the beach empty. The weather discouraging, but not to us. The air wet, the ocean wild. And I reel from the last month’s intensity.
 
+> >
+
 And then we left the jetty. Spinning circles in the sand. Trying to force movement into our legs but only wanting to hold each other. Even with a solid surface beneath my feet I still felt dizzy. There was no light on the sand, but when she spoke I could sense the expressions on her face. I knew them well now. She pointed to the Ferris wheel again. Saying how she wished we could have ridden it.
 
 ‘Next time,’ I said. Unsure if there would ever be a next time.
 
 And we walked toward the amusement park, leaving the beach at our backs. Beneath the Ferris wheel, the air still cold, the ground still in puddles. Stepping up to the platform and the waiting N train. And then sailing, noisily, back toward Manhattan.
+
+> >
 
 Morning. I put the last of my things into my panniers. Zelda left, then came back into the room with a breakfast of spiced beans and toast, handing a plate to me and turning on the radio to the oldies station.
 
@@ -2061,7 +2086,6 @@ We climbed to the roof, and spoke of insignificant things. The city was a differ
 
 I said goodbye, and walked back down the stairs. Part of me, the part connected to that lump in my throat, that pit in my stomach, wanted to stay in the city. The feelings lingered. Saying goodbye to Valencia and Ox, and then pushing my bags through the hole in the wall. When the downtown highrises and street commotion flew by me, all I thought of was her. The Staten Island boardwalk, the bridge into New Jersey, that longed-for feeling of gliding through new unfamiliar streets, but all I thought of was her.
 
-***
 ***
 
 ### Swimming
@@ -2073,6 +2097,8 @@ I lean my bike against the terminal and walk along the boardwalk to a fence that
 Transition. The autumn is cold now. Out of the city, the leaves fall once more. Yesterday, one landed in my lap as I rode through the pine barrens of southern New Jersey. The wind blows at my back, and birds circle in the sky above me.
 
 The coordinates have shifted again. Movement alters perspective. I don’t sit and dream of the past. The turn lanes are misleading. There is only forward.
+
+> >
 
 Cape Henlopen, Delaware.
 
@@ -2088,6 +2114,8 @@ Before sundown I found an abandoned home, completely stripped to its core, behin
 
 In the morning I look into a mirror and hardly recognize the image before me. My face is dark from weeks of sun, eyes red from wind. My hair lays down for the first time in years.
 
+> >
+
 Day brought sore legs and skies that verged on rain. A relaxed pace over gentle rolling hills, more falling leaves, large shoulders, abandoned motels to explore, and friendly people along the way. I rode upright, singing Belinda Carlisle songs to the day that grew progressively sunny. My mood led me to pedal faster. The clear day bringing a wave of euphoria over me, as I raced southbound, leaving Delaware for Maryland.
 
 Then came the burst. The shrill sudden pop I’ve come to recognize instantly as a burst tube. I pull into the parking lot of a gas station to fix the tube. The clear day moves toward dusk in soft exhalation.
@@ -2095,6 +2123,8 @@ Then came the burst. The shrill sudden pop I’ve come to recognize instantly as
 As I kneel down to look at the wheel, I see the tire’s sidewall has blown out. Patch the tube and attempt a makeshift patch job on the tire. When I fill the tire with air, both tube and tire burst again. I try another repair and use a new tube, which pops again. The sun has gone down, twilight settles over the gas station parking lot and the quiet roads beside it. I’m told there are no bike shops in town, the only suggestion is that I call the Wal-Mart in a neighboring town.
 
 I look at my map and decide to walk my bike a few miles to the road that puts me in a better place to hitch to a town with a bike shop from. And while I’m pushing my bike with an irreparable flat rear tire – the wheel that also supports the extra weight of all of my gear strapped to the rear rack – searching for the road that isn’t quite where the map makes it out to be, growing more tired as the hour grows later, it begins to rain.
+
+> >
 
 I walk my bike down empty streets. Lights inside homes are all dark. The empty church and auto shops I pass give the situation the feeling of utter desolation.
 
@@ -2207,16 +2237,28 @@ And my second wish… to always remain vulnerable.
 ---
 
 *All the dances and tears*
+
 *Wither on the vine like twilight*
+
 *Before falling to the ground*
 
+> >
+
 *Brittle hearts like fruit*
+
 *Whose time has come*
+
 *To no longer witness the sunsets or the floodtides*
 
+> >
+
 *But to become a part of it all over again*
+
 *A part of it*
+
 *For the dusk wind to blow away*
+
+> >
 
 *Stay forever wild.*
 
