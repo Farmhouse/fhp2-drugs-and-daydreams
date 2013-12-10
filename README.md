@@ -1241,11 +1241,12 @@ When her phone rang, she made plans with the voice on the other end to meet at 2
 ‘I should get going,’ she said to me, taking my plate to the water jug perched beside the sink. ‘But if you’re staying here, I’m sure I’ll see you around.’ I smiled back, inhaling deeply of this air of fragile tension between the overwhelming forces of this American city, of an entire culture, whose aim is to numb and dull and portray its comforts and conveniences as being the desirable choice, and this dimly lit room, in an otherwise darkened building, and a conversation contrary to those laws by its very nature of us sitting here, thieves, insurrectionaries, in the heart of the center of empire.
 
 ***
-***
 
 ### Everything That We Write Is A Love Song
 
 The breeze that lets dance the leaves, enters my lungs, settles in my blood.
+
+> >
 
 For years I’ve had in my dreams places I’ve never been of impossible-seeming scenes with people I knew, or sometimes didn’t, to later find these scenes unfolding in waking life. Unmistakably, and for a moment it’s a shock, in the way that a dagger of lightning can appear and then go so suddenly but the tremors ignited upon the senses linger after.
 
@@ -1258,6 +1259,8 @@ One night on my porch, a friend and I spoke of past lovers and the idea of desir
 Her words made me think of my past more critically, and also of the present. Of how often I’ve found myself or witnessed friends in relationships that are so clearly unhealthy, so emotionally exhausting and consuming, and, taken to its most basic level, far more stifling than mutually enriching.
 
 I wonder what shortsightedness has occurred that we can be more motivated by convenience, distraction or habit than by the desire to learn to develop and act in ways that contribute to the health of ourselves and those around us.
+
+> >
 
 Some nights I go to sleep in the forest teeming of trees millennia-wise and insect songs, and other nights on the desert floor beneath a sky moonrise-bright and edged by mountains in silver snow. I consider the oddity of the spectacle that my presence creates, feeling my movements perceived by eyes all but invisible to me. And I think of the languages we are losing for our narrow definition of what language is and the authority we surrender to this narrow and deceptive form of expression. And maybe, beneath oral language’s hijacking of communication, there still is a part of us that can understand the subtle magnetism the weather shifts bring or the tones in the ranges numbed by lives spent entrenched in the hum of cities and machines.
 
@@ -1303,6 +1306,8 @@ The modest sign said simply, State of Maine.
 
 That was immediately followed by another sign announcing the number of deaths attributed to traffic collisions with moose.
 
+> >
+
 At daybreak, the sound of rain on my sleeping bag awoke me. We rode into a vast copper landscape and heavy silver skies. The wind blew gently the train whistles in the distance, streams meandered beneath us. Air upon our skin like rogue caresses and the constant motion of legs felt so natural by now, as if floating through this amber sea of leaves that hung delicately on swaying branches or drifted with fluid-like movement through the air was our ocean and we were floating on its tides.
 
 We could ride for miles beside each other, highway 2 empty of cars for lengthy stretches. Or fall into a line, absorbed in singing aloud songs that only each other and the whispy air would hear. Or looking beside yourself, at a landscape in motion, the sea of trees and undulating angles of land, coming to the peak of a hill to see the odd geometries of vastness stretch wide open to the horizon.
@@ -1315,15 +1320,15 @@ We pull into a rest stop, the lone development in this sparse corner of the stat
 
 ---
 
-> Beneath us, the fish swam like silver darts beneath the light of a full moon.
+> *Beneath us, the fish swam like silver darts beneath the light of a full moon.*
 > 
-> You lay atop me and I see the stars. The moon in declining completeness. It feels as if I measure you by the new moon.
+> *You lay atop me and I see the stars. The moon in declining completeness. It feels as if I measure you by the new moon.*
 > 
-> Beneath our feet the bed of a stranger’s truck in Mexico, that would take us to where seashells lie in the dirt atop mountains. Intertidal zone between ages rests here, between disappeared cars and agave forests.
+> *Beneath our feet the bed of a stranger’s truck in Mexico, that would take us to where seashells lie in the dirt atop mountains. Intertidal zone between ages rests here, between disappeared cars and agave forests.*
 > 
-> Beneath our feet the blur of tracks of the Union Pacific line, a silver moon makes a silver glow of the mountains that surround us.
+> *Beneath our feet the blur of tracks of the Union Pacific line, a silver moon makes a silver glow of the mountains that surround us.*
 > 
-> Did we choose the foxes, or did they choose us? Their images, reassuring, even in their absence.
+> *Did we choose the foxes, or did they choose us? Their images, reassuring, even in their absence.*
 
 ---
 
@@ -1354,7 +1359,6 @@ The copper region has its own pace. It possesses its own time. Outsiders may try
 We tried. We had our goals, our intended destinations, distances to cover. In the end, our plans never worked out; rain, mountain slopes, and flat tires conspired to hold us from the course we had highlighted for ourselves on our maps. Though, in the end, failing to meet our goals is the best thing that could have happened.
 
 ***
-***
 
 ### Sweet Rosemary And Steel
 
@@ -1370,7 +1374,9 @@ Upstairs was a maze of catwalks and rooms turned into bedrooms. A bar stood amid
 
 I swiveled around in the cluttered emptiness, it was mostly the scent of forgotteness and neglect that hung in the air. I imagined how these hallways must have felt when this building was an active school and community center, when children staged performances in the large open rooms and the kitchen was warm with meals being prepared, and the huge chain-link cage enclosure covering the rooftop was for games being played across the sprawling roof and the pool wasn’t the eerie darkened echo-chamber it was today.
 
-> There are ghosts here.
+There are ghosts here.
+
+> >
 
 Back in the kitchen, Ox was awake. Music crackled from the cassette player in his room beside the kitchen. An old friend, over spirulina smoothies he told me about having helped find and open Bowery Manor, about the sporadic police raids, giving a subtle laugh at their inability to seal the building off, and about the coming autumn in New York – people planning on coming through town and upcoming events. When the cassette came to an end, that light bulb flickered just a little brighter until the tape was flipped and the ‘play’ button hit again.
 
@@ -1420,7 +1426,7 @@ After sifting through their bags, while waiting for everyone else to catch up, w
 
 ‘We should climb the fire escape,’ I said. The Captain, thinking I meant the smaller building, didn’t express too much interest. Then I pointed to the taller building next to it.
 
-‘We should climb it,’ Zelda said. We crossed the street. The ladder at the bottom of the fire escape was held just out of reach by a hook. I jumped and grabbed the bottom rung, then started pulling myself up, legs dangling, until I was able to swing my feet up to the balcony, unlocking the ladder and lowering it for Zelda who came up after me.
+‘We *should* climb it,’ Zelda said. We crossed the street. The ladder at the bottom of the fire escape was held just out of reach by a hook. I jumped and grabbed the bottom rung, then started pulling myself up, legs dangling, until I was able to swing my feet up to the balcony, unlocking the ladder and lowering it for Zelda who came up after me.
 
 The two of us ran upwards, crossing diagonal stairs, horizontal balconies. Out of breath, creeping by lit up windows with tenants consumed with their dinners and laptops. No one seemed to notice us. We finally got to the last short vertical ladder that took us to the roof. At the top I looked over the side. A breeze blew across the roof, through my hair. We stood above most other surrounding buildings. Sitting on the edge, legs hanging 14 stories above the city, no grips other than the flat tarpaper roof. Everyone below a tiny figure from these dizzying heights. Each draught of wind would make my teeth clench with a rush of tiny bolts of fear, a simultaneous repulsion and urge to give myself to the fall. Zelda simply looked down and laughed. A devilish laugh. One of a familiarity of nights ruled by straddling the edge of limits.
 
@@ -1461,7 +1467,6 @@ I want to undo the damage of the maps; to be able to place more emphasis on bein
 Could we find this place we’re told is the sole arena of lovers in the world around us?
 
 ***
-***
 
 ### Autumns And Dusks
 
@@ -1479,6 +1484,8 @@ Slowly the sky turns to light. The still-invisible sun turns a corner of the sky
 
 A few lights of nearby inns still gleam in the near distance, at the hidden end of the footpath we’ve broken off from that winds to and then disappears behind spruce trees and red berry vines.
 
+> >
+
 One string of my family traveled to this continent, leaving, only a couple generations back, from a volcanic island in the Mediterranean Sea. Another branch crossed the border and took up residence in what was, at the time, the lush, arable and predominantly Mexican neighborhoods not far from the heart of downtown Los Angeles. A couple of my only memories of my relatives are a great grandmother who never learned to speak English and a grandmother who would constantly sit me on her lap and read books to me from the shelves of her apartment in her coastal city. I was born in a city whose hills look down over the expanse of the ocean, and, facing in the opposite direction, at the snow-capped line of mountains that rise like a command over the landscape. When I was younger, I would frequently walk away from my classes and ride my bike to these hills. And, later, out of the city altogether and into, both, mountains and beach.
 
 The geological and meteoric forces that we ingest through the food that we eat, the air that we breathe, I believe it shapes us as much as any amount of nurture relationships can.
@@ -1491,7 +1498,11 @@ I’ve been accused by those close to me of needing extremes in all facets of my
 
 The musty sherbets lengthen over the horizon. A deep voluptuous pink appears in the clouds that drift from the south. And soon there are no stars. They’ve become engulfed too, by the dawn.  Their cue to rest for the day. And the currents in the water have lost their cloak of dark, the restlessness of the water’s vast motion of peaks and valleys swirl below. It’s day now, on the edge of this atlas, at the tip of Maine.
 
+> >
+
 I’ve heard addiction defined as habitually carrying on an action past the point of there being negative consequences for that action. But, if you can excuse the oversimplified definition, wouldn’t it follow that this would apply to inaction as well? For instance, if one’s inaction permitted greater negative consequences to occur than if one were to act in a way to minimize or halt altogether those consequences, wouldn’t that inaction be a sign of unhealthy choices?
+
+> >
 
 We leave Bar Harbor, following the road as it leaves the water’s edge and begins to weave through birch and spruce groves. Groves whose leaves tint the beams of sunlight a golden green. Groves who spread, dense, into infinity on either side of the road. It’s still early in the morning.
 
@@ -1499,9 +1510,11 @@ The road climbs into the air, until we look down upon those trees from arid heig
 
 Like so much noise, we set out to find the frequencies that others tend to ignore, that convention has cast aside. Having fully embraced punk, first as a music scene, then as a scene that encouraged one to create their own set of ethics, to dream huge and make creative use of your resources to get there. Artemis climbed the rocks toward the water. Over the previous years we had cooked house meals from food that had been cast aside by the giant health food stores of our city, or from the greens and berries that grew throughout our neighborhood. We had ridden our bikes through the nights, sneaking into high school and apartment complex pools, refining our methods of looting food from chain stores and otherwise avoiding work as much as possible in order to spend our time volunteering at the infoshop. Over time, things began to change. Artemis had got a boyfriend and would dedicate more and more of her time to the gardens not only in the backyard, but now in the front as well, and discuss entering into an apprenticeship in carpentry.
 
-I had become tired of the direction that my city was changing, feeling that the sleepy feel and inclusive scene was growing far more pretentious and exclusive, overrun by people who had no respect toward the communities and neighborhoods they were moving into and altering the character of, and I was ready to leave Portland, Oregon behind.
+I had become tired of the direction that my city was changing, feeling that the sleepy feel and inclusive scene was growing far more pretentious and exclusive, overrun by people who had no respect toward the communities and neighborhooss they were moving into and altering the character of, and I was ready to leave Portland, Oregon behind.
 
 It was with this that we put our squeaky bikes into boxes and left for the far side of the country. 
+
+> >
 
 Huge rocks shelter calm tide pools. Breaking waves crash onto rough stone, sending white foam into the sky. We veer past parked cars and tour busses congregating in parking lots and ride up the gravel carriage trails that climb into the interior of the island. Pine trees now line the sloped forest floor and scent the air. In the interior, we come upon only a few people, trading smiles as we pass. We stop to eat beside a lake.
 
