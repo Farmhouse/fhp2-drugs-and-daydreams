@@ -964,6 +964,10 @@ This is how my story begins.
 
 ### Hearts Like Wheels
 
+> >
+
+> >
+
 The day’s first light. Atmosphere in shades of liquid, that Icelandic blue which precedes the dawn. The fringe of Lake Champlain at my feet, calm as a hush, still as glass. I roll over and sand falls from my hair, landing in my sleeping bag. At this hour the wind still slumbers. Not even the birds sing this early.
 
 I take a sip of the wine that remains from last night and watch my breath linger in the Autumn air, hanging like a dancer, then disappearing into the chill. Artemis stirs beside me, then goes back to sleep.
@@ -1034,6 +1038,8 @@ The clock tower ticked toward the hour of shoppers and diners, classes and work.
 
 From a bridge suspended between islands we looked below us into Lake Champlain. Water a stoic gray verging on black when the clouds cover the sun, but revealing a celestial blue at each chance given the sunlight to bleed through. The fringe of the lake throws itself upon the rocks at the land’s edge. A storm is coming, we had been told, and above us the heavy torsos of the clouds pushed across the sky.
 
+> >
+
 And one could be pulled by the rush of the wind, could see it in invisible waves flooding across fields of grass that swayed to its whims, in the turbulence of entire trees shaking and the surface of dirt roads spun into the air. Wooden farmhouses with steeples that stab at the heavens stand like islands in green fields, crowned by crosses or weathervanes, signs of direction braced against a whimsical sky that is anything but permanent. Anything but still.
 
 On my face I feel the first drops of rain. The wetness feels good on my skin. My blood pumps with excitement. Faster. Faster. Static in the air, and the occasional raindrop becomes a steady drizzle. We race by homes and fields, tractors and silent intersections. Tires spinning in quickening revolutions. Past farm stands and small motorboats tied to crooked docks. Each gust of wind pulls leaves into flight, and as we ride pieces of copper and gold swirl through the air. Anything but permanent.
@@ -1102,6 +1108,8 @@ Here we stand, being told we’re old enough to be adults. Sleeping like stowawa
 
 Ahead of us, the mountain ascent. Strained legs forced to go higher. Sweat dripped into my eyes and heartbeat filled the tips of my fingers. The homes had disappeared, and not a car had passed in the last few minutes, hours. It didn’t matter. Nothing mattered right now except this mountain. The wind blew and it seemed taunting how smoothly and easily the leaves parted the sky. Every curve and the road rose higher. 
 
+> >
+
 I cursed the weight of my gear, the creaking sounds of my bike while I pushed higher. Each revolution a struggle and beneath my frame the cracks in the road crept by. A hot sun beat down on my face and through the panting breaths, yells pushed themselves from my gut. And still, every push and the road rose higher.
 
 The words and allusions are everywhere. A song about “freedom” that plays over the supermarket PA, the movie about adventure that you can watch provided you pay the ticket charge.
@@ -1147,6 +1155,10 @@ Now begin again.
 ***
 
 ### Silver Cities
+
+> >
+
+> >
 
 I once met a woman who doted upon bridges. In morning light, as I walked with her throughout that water-city that was her home, she told me of her wedding vows exchanged atop the center of the span that arched with grandeur over the river at our feet.
 
@@ -1241,6 +1253,10 @@ When her phone rang, she made plans with the voice on the other end to meet at 2
 ***
 
 ### Everything That We Write Is A Love Song
+
+> >
+
+> >
 
 The breeze that lets dance the leaves, enters my lungs, settles in my blood.
 
@@ -1360,6 +1376,10 @@ We tried. We had our goals, our intended destinations, distances to cover. In th
 
 ### Sweet Rosemary And Steel
 
+> >
+
+> >
+
 I woke up early and set off into the building, flashlight in hand and a feeling of vertigo from the sheer size of the labyrinthian halls, the multiple wings and adjoined church left eerily empty and bathed in dust and stained-glass light, and so much detritus from its past lives as a community center. On the third floor was the main room, lined by open windows whose glass had been removed, now letting light, noise and breeze flow lushly throughout the room. Most other windows in the building were boarded up, allowing in only a small sliver of light through the triangular wedges cut from the bottom of each plywood sheet. This made nearly every room dark, menacingly silent, and possessed of so many odd and curious details of which one could mine a litany of scenarios and theoretical explanations for.
 
 On the lower floors were the large performance theatre and basketball court. Chairs were scattered about the floor, a painted set remained standing on the stage, and a tall laddered-platform on wheels sat in the middle of the room. It was hard to know if these all were left in careless abandonment or if they were the remains of some squatter-party, as Bowery Manor at once appeared to be both the elegiac remnants of a once-bustling community space forced out by the city of New York and a boundless playground for those who stumbled upon the shell, determined to breathe life back into it. Unfortunately, the building being closed off meant that it was illegal to be anywhere on the property, and anyone coming or going from inside Bowery Manor had to be aware of any police or HPD presence around the building. Thus, besides the metal door installed by the kids and secured with chains and padlocks, the first floor also had a large metal beam wedged between the stairs and the rollgate, the only accessible entrance to anyone who did not want to squeeze through the sledgehammered hole beneath the tarp or climb through a second story window.
@@ -1468,6 +1488,10 @@ Could we find this place we’re told is the sole arena of lovers in the world a
 
 ### Autumns And Dusks
 
+> >
+
+> >
+
 I open my eyes. Sleep is light when you risk arrest for it.
 
 Stars swim over half the sky, keeping watch on those not yet touched by dawn’s indulgence. Atmosphere of cobalt fade into pink. With squinted eyes and sleeved layers unable to keep the full breath of cold out, Artemis and I walk to the stone wall that separates sleeping town from salty shore and sit upon its misty ledge.
@@ -1539,6 +1563,8 @@ They were so persistent that we gave up on eating and, instead, climbed inside o
 This seemed like it went on for hours, this suicidal battle against the clouds of mosquitoes, and at whatever sleep-deprived hour I had just begun to fall asleep, I soon awoke to raindrops falling on my sleeping bag.
 
 Artemis and I set up her tent in the dark, exposed to the ceaseless mosquito swarms, and crawled inside. Listening to the tent covering fly off and flap around in the wind, falling asleep, finally, to the rain falling through the mesh and onto our faces.
+
+> >
 
 Morning, and rain gear on.
 
@@ -1618,6 +1644,10 @@ It will be dark when our ferry pulls into Provincetown harbor. The accumulated d
 
 ### A Field Guide To Trespassing
 
+> >
+
+> >
+
 When evening came to the city, we swept out the basketball court in the lower floor of Bowery Manor. As usual, there were a handful of people in the squat that night, and with a few extension cords running up to the next floor (no doubt dimming the light for whoever may have been in the kitchen), we had an indoor basketball game lit by floodlights and a radio playing NWA and Crimpshrine tapes. There were kids enough for two teams – east coast against west coast – with a rotating bench stocked with Ballentine’s 40s and dumpstered fruit juice.
 
 It was this way that the night grew late, a few of us ended up in the large main room upstairs sitting around the candlelight, the cool summer air blowing through the large open windows high above our heads. A flask of gin was passed around, and in the flickering light we could make out only each other as everything else faded to a darkened background that made the rest of the room feel a forest. A revelous delirium of heavy eyes and intoxicated laughter. The air smelled of the euphoria hours of a late summer night along with the musty presence we came to know were the disaster-histories emanating from the time-drenched walls and crevices of this reclaimed castle.
@@ -1660,7 +1690,7 @@ The language I speak is weighted with the baggage of not merely human-centric th
 
 mediated by machines, the freer and greater flow of economies are all not only to be accepted, but promoted, believed in as progressive movement, equated with well- being and accomplishment.
 
-But, once again, I wonder where that mutually enriching relationship is that my friend spoke of that night. How much of urbanism, of economies, of something so basic as the gathering and preparing of food, occurs in a way that benefits, rather than exploits, those other communities with whom we share the world with? Is it fair to refer to these separate species, forests, bodies of water as other communities? Or is that revealing our perceived independence from what, in total, forms what simply is our community .
+But, once again, I wonder where that mutually enriching relationship is that my friend spoke of that night. How much of urbanism, of economies, of something so basic as the gathering and preparing of food, occurs in a way that benefits, rather than exploits, those other communities with whom we share the world with? Is it fair to refer to these separate species, forests, bodies of water as *other* communities? Or is that revealing our perceived independence from what, in total, forms what simply is *our* community .
 
 > >
 
@@ -1698,11 +1728,13 @@ Why isn’t the perspective, rather, ‘we can’t go forward; taking more from 
 
 > >
 
-I turned off my flashlight and squatted in pitch darkness behind a large metal tank. I let my eyes adjust and saw that the room I was in held all of the building’s furnaces and the pumps for the basement swimming pool. The room connected to another room even further back, one beneath the church whose doors faced 1st Street. The room’s only light fell through locked grates in the sidewalk above.
+I turned off my flashlight and knelt in pitch darkness behind a large metal tank. I let my eyes adjust and saw that the room I was in held all of the building’s furnaces and the pumps for the basement swimming pool. The room connected to another room even further back, one beneath the church whose doors faced 1st Street. The room’s only light fell through locked grates in the sidewalk above.
 
 I walked back into the furnace room and sat. I happened to have climbed into the room directly below the door that we had used to enter and leave the building, and could make out bits of the conversation between the HPD officers speaking to each other directly above me. Words about us having put on our own locks and chains.
 
 In the darkness I heard voices and radio crackling coming down the staircase, then saw traces of light as flashlight beams entered the basement. I knelt as quietly as I could behind the base of a large metal tank that concealed me from the doorway. The voices stopped outside the doorway, and the flashlight beam slowly scanned the wall behind me. With held breath and deafening heartbeat that I was sure would give myself away, the beam moved across the furnace just inches above my head. I traced the light with my eyes, noticing the uneven shadow edge cut into the beam by the large bolts atop the tank that hid me. And then the beam left, the voices stepped away from the doorway, and dark enveloped the room once again.
+
+> >
 
 I walk along the river, its banks a series of concrete piers, weathered structures. The same is present on the opposite bank, where a city skyline touches down. I realize that I couldn’t even imagine what this landscape looked like when it was a healthy ecosystem. I’ve never known intimately a landscape untouched by civilization – the forests I’ve lived within are second-growth, the river I’ve lived beside no longer has communities of salmon so thick that you could walk across them as the passed down stories go, the desert I’ve lived in possesses its mining scars seemingly no matter how deep you venture into its patient expanses.
 
@@ -1778,6 +1810,10 @@ The room was cold, the missing glass providing no barrier from the dawn air. We 
 ***
 
 ### From The Ground
+
+> >
+
+> >
 
 We awoke in the Foss Woods, near the tip of Cape Cod. Coming out of sleep to the sun falling into an air illuminated by the sea, and rising to pack our clothes and bags back onto our bikes. Then, leaving our bikes leaned against a tree, we walked deeper into the woods.
 
@@ -1932,6 +1968,10 @@ I close my eyes and the stars don’t disappear. They become more intense.
 ***
 
 ### Every Point A Vanishing Point
+
+> >
+
+> >
 
 We split into groups of two or three. First we’d need to climb a chain link fence, then walk past the guard shack where the night watchman sits listening to his radio.
 
@@ -2088,6 +2128,10 @@ I said goodbye, and walked back down the stairs. Part of me, the part connected 
 
 ### Swimming
 
+> >
+
+> >
+
 The ferry terminal in Cape May, the southern tip of New Jersey.
 
 I lean my bike against the terminal and walk along the boardwalk to a fence that looks out upon the mouth of the Delaware River. Sun hovers in the sky, water washes upon rocks. I breathe the ocean. Everything on my mind seems so elusive, mercurial, but with those breaths I remember simply how much the sea anchors me. I jump the fence and walk down the rocks to the intertidal zone. The water pulses back and forth, burying and revealing stones. The sun descends slowly.
@@ -2232,7 +2276,11 @@ And my second wish… to always remain vulnerable.
 
 *And this is how it all began…*
 
+***
+
 ---
+
+> >
 
 *All the dances and tears*
 
@@ -2260,6 +2308,10 @@ And my second wish… to always remain vulnerable.
 
 *Stay forever wild.*
 
+> >
+
+---
+
 ***
 ***
 
@@ -2268,6 +2320,10 @@ And my second wish… to always remain vulnerable.
 
 ### First I’m Gonna Make It…
 ### —postscript—
+
+> >
+
+> >
 
 [but first, a warning:
 
@@ -2292,6 +2348,10 @@ The choice to break the seal is up to you.]
 
 ### …Then I’m Gonna Break It…
 
+> >
+
+> >
+
 We took the train into the city from her house in Brooklyn. On Houston Street, I helped her over the fence, and then up through that second-floor window.
 
 A year had passed. It had all changed. Plaster fell from the walls and ceilings of Bowery Manor. Everything was covered in the dust of neglect. We climbed the stairs to the roof only to find the rooftop doorway completely bricked up. Our entranceway on the bottom floor had also been sealed, the cut chains of our old door lying amidst the other moldy piles on the ground.
@@ -2312,6 +2372,10 @@ We left Bowery Manor, climbing back out of that second-floor window, jumping bac
 ***
 
 ### …Til It Falls Apart
+
+> >
+
+> >
 
 The next time I would see Bowery Manor would be in a postcard The Captain sent me glued to the back of a picture he had taken. In the picture, a bulldozer sits in a dirt lot, that back lot through which we had peeled back the fence and snuck through in order to get to our entrance. The brick façade of the building’s rear stood in an incomplete state of demolition.
 
