@@ -25,7 +25,7 @@ everything that you read.
 
  Contents
  
- > >
+> >
 
 Part I. Drugs And Daydreams
 
@@ -885,8 +885,6 @@ The rolling hills of San Luis Obispo lay before me now, the most tense portion o
 Loose gravel.
 
 Slide.
-
-> >
 
 My head hit the solid surface of the highway. A quick grunt forced its way from my gut. Within an instant a tornado of motion went to stillness.
 
