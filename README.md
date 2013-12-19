@@ -1018,7 +1018,7 @@ The slow movements of a town awakening. Children cross the brick patios, faces h
 
 A bench covered in maps and food, and somewhere in the middle of it sit Artemis and I, pointing out the meandering highways, eating bagels and hummus.
 
-Artemis: hair flowing in fiery trusses and a way of carrying herself that, at her more unguarded moments, matches. Laughter warm as an embrace and fists prone to outbursts violent as the northwest skies that we had left behind. There was a time when the sun rose on the two of us barreling across the country, teenagers fueled by idealism and petty theft. Afternoons spent in the tree-covered plazas of San Antonio, backseats of strangers’ cars winding through the industrial necropolis of Pittsburgh, dirt paths through the seemingly boundlessness of Maryland’s forests, then waking up, in Portland, Oregon in the house that would become our new home.
+Artemis: hair flowing in fiery trusses and a way of carrying herself that, at her more unguarded moments, matches. Laughter warm as an embrace and fists prone to outbursts violent as the Northwest skies that we had left behind. There was a time when the sun rose upon the two of us barreling across the country, teenagers fueled by idealism and petty theft. Afternoons spent in the tree-covered plazas of San Antonio, backseats of strangers’ cars winding through the industrial necropolis of Pittsburgh, dirt paths through the seemingly boundlessness of Maryland’s forests, then waking up, in Portland, Oregon in the house that would become our new home.
 
 In the air the shouts of kids in no particular rush to get to school. A light wind ran through the channel of this narrow street, ruffling one of our maps that sat open on the ground. Broom bristles scratched across the brick walkways, and the air echoed with the clapping of a woman’s heels as she passes us by.
 
@@ -1026,7 +1026,7 @@ Transition. Ushered in by the arriving season. Displayed by the rust in the tree
 
 A new day. Signaled by the chimes of the belltower that ring through the sky.
 
-We didn’t know it at the time, but Portland would bring the end of some of that naïveté that we had arrived with. Celebrations and arrests, intoxications and lessons. Now, two entirely different people because of it.
+We didn’t know it at the time, but Portland would bring the end of some of that naïveté that we had arrived with. Celebrations and arrests, intoxications and lessons. And now, two entirely different people because of it.
 
 Four years later, at that same house in Portland, she and I sat in the garden, peering over maps of states that neither of us had been to. The idea… to ride our bikes beginning in Vermont and tracing the coast south. She to New York, I to Florida. Food, shelter, and routes all to be determined along the way. Comfort and security we would leave back on the other side of the country.
 
@@ -1062,15 +1062,15 @@ Anything but still.
 
 ---
 
-Light tiptoes across the floor and up the walls. The night brought rain but in here we stayed dry and warm, and I lay stretched out across the empty bedroom that Artemis and I had swept out in the candlelight.
+Light tiptoes across the floor and up the walls. The night brought rain but inside this abandoned home we stayed dry and warm, and I lay stretched out across the empty bedroom that Artemis and I had swept out in the candlelight.
 
 Like the storyteller prone to embellishments and grandiosity, and the story is both created and carried away by its own momentum, that is how we had come to find ourselves in one of the most haunting environments I’ve encountered.
 
 The sun falls into treetops and the day settles into a soft exhalation. We pass an abandoned house buried in vines and shattered glass, resting loomingly in the shade of trees whose unkempt branches brush upon the walls of the upper floors.
 
-We slip quickly off the road and lay our bikes down behind a barn in the overgrown grass. Inside the barn, amidst the fallen debris, are several old tractors and the cart of a horse-drawn buggy, all rusted with age and veiled beneath the dusts of neglect. Two other wooden buildings appear on the verge of collapse. We avoid them and make our way to the house.
+We slip quickly off the road and lay our bikes down behind a barn in the overgrown grass. Inside the barn, amidst the fallen debris, are several old tractors and the cart of a horse-drawn buggy, all rusted with age and veiled beneath the dusts of neglect. Two other wooden buildings appear on the verge of collapse. We avoid them and make our way to the vacant home.
 
-Inside, the home is beautiful, and shows no signs of any recent visits. The first floor has a sun porch stretching the width of the house, appearing at one time to have been completely enclosed. Now its floors are hidden beneath the glass fallen from each of its shattered windows. In the interior of the house are several large rooms, each bare of any furniture or decorations, and instead covered in trash, newspapers, fallen wallpaper, rolled carpeting and the waste of birds who had taken to nesting in some of the home’s undisturbed corners. In the fridge are glass jars holding substances that would be unidentifiable if not for the label, with expiration dates over a decade past.
+Inside, the house is beautiful, and shows no signs of any recent visits. The first floor has a sun porch stretching the width of the building, appearing at one time to have been completely enclosed. Now its floors are hidden beneath the glass fallen from each of its shattered windows. In the interior of the house are several large rooms, each bare of any furniture or decorations, and instead covered in trash, newspapers, fallen wallpaper, rolled carpeting and the waste of birds who had taken to nesting in some of the home’s undisturbed corners. In the fridge are glass jars holding substances that would be unidentifiable if not for the label, with expiration dates over a decade past.
 
 An arched doorway leads into the largest room, whose walls were still half-covered in red velvet wallpaper. I walk up a grand-ballroomesque staircase to the upper floor, the crickets go silent as I pass. I turn into a bedroom and see why the house is empty. At the head of a blackened mattress are the charred remains of part of the home. Whether it was the wall, ceiling, attic or roof could not be told, for all were absent in places above this mattress, consumed by fire. This is the only mark of any damage to the house – a charred mattress, in a room decorated in infant’s wallpaper.
 
@@ -1092,7 +1092,7 @@ I set out in search of the life that was never presented as an option.
 
 Blame it on my childhood. On an environment of people content with a landscape of freeways and shopping malls, with deadbolted doors and obscene work weeks, with comfort. I sought the contrast, the dysfunction. I found comfort in the tears in the fabric. 
 
-We drew treasure maps on tunnel walls and threw parties on rooftops. We broke windows and disabled utilities. We tore up lawns in vacant lots and planted tomatoes. We stole from corporations to feed ourselves and our neighbors because the newspaper talked about increased police spending and corporate tax breaks to try to lure new businesses into our town but that didn’t put food in the mouths of some of our community who were hungry. We sought out others who could teach us, and passed our new-learned knowledge onto our friends. We smiled at strangers. And after all of this, we could shoot rifles and manipulate our way into a shareholder’s meeting with the same ease that we could turn a business’ excess and a meadow’s bounty into a free meal and clothing and necessities for a patio full of strangers, and ride a freight train to a friend’s porch on the other side of the country. 
+We drew treasure maps on tunnel walls and threw parties on rooftops. We broke windows and disabled utilities. We tore up lawns in vacant lots and planted tomatoes. We stole from corporations to feed ourselves and our neighbors because the newspaper talked about increased police spending and corporate tax breaks to try to lure new businesses into our town but that didn’t put food in the mouths of some of our community who were hungry. We sought out others who could teach us, and passed our new-learned knowledge onto our friends. We smiled at strangers. And after all of this, we could shoot rifles and manipulate our way into a shareholder’s meeting with the same ease that we could turn a business’ excess and a meadow’s bounty into a free meal and clothing and necessities for a patio full of strangers, or ride a freight train to a friend’s porch on the other side of the country. 
 
 I set out searching for it.
 
