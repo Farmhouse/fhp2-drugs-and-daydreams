@@ -1196,7 +1196,7 @@ Theatre and vice the two motions of its heartbeat.
 
 In the past the theatres of this district rivaled those of Broadway, though, as is prone to happen when one’s character is based on make-up and wardrobe, over time that façade takes hold and the line between what is projected and what is blurs. Here, the police were frequently as criminal as those they patrolled, and the most unlawful and dangerous establishment owners were given a hero’s reverence. Transient in nature, a generation may change an entire street’s face from Jewish to Italian, or from shanty to tenement, or from theatre palaces to drug den.
 
-Sirens echo throughout this noiseless building. Light moves in ephemeral rays through the gaps in the boarded windows. Outside the sounds of the city swirl around. Traffic, yelling from the bar, people walking along the sidewalk behind the building. The Lower East Side is fashionable now, the desperation kept out of view. Putting my bags down, we traced cavernous darkened rooms and stairwells to the roof.
+Sirens echo throughout this noiseless building. Light moves in ephemeral rays through the gaps in the boarded windows. Outside the sounds of the city swirl around. Traffic, yelling from the bar, people walking along the sidewalk behind the building. The Lower East Side is fashionable now, the desperation kept out of view. Putting my bags down, we traced cavernous darkened rooms and stairwells up to the roof.
 
 > >
 
@@ -1212,7 +1212,7 @@ But what is paperwork to some are castles to others.
 
 ---
 
-We stood on the roof, an alcove between the top of the stairwell and the cage-covered tarpaper rooftop of the building’s spacious floors. I looked over the edge; taillights and horns blared into the intersection of Houston and Bowery four stories below. A garden stretched along the side of the building, buffering the building from the pulse of New York’s Lower East Side. Neon signs on the streets below cast liquid tones off of adjacent facades, the buildings and towers of varying heights in every direction made me imagine the view of the city from above, an ocean in the air.
+We stood on the roof, an alcove between the top of the stairwell and the cage-covered tarpaper rooftop of the building’s spacious floors. I looked over the edge; taillights and horns blared into the intersection of Houston and Bowery streets four stories below. A garden stretched along the side of the building, buffering the building from the pulse of New York’s Lower East Side. Neon signs on the streets below cast liquid tones off of adjacent facades, the buildings and towers of varying heights in every direction made me imagine the view of the city from above, an ocean in the air.
 
 ‘We’d been looking around the Lower East Side for a building to squat,’ The Captain explained to me while we looked out onto the streets below fluid with movement. ‘When we first found the building, we would hop the fence into the garden, then climb their awning and into a second floor window. But then we found that we could use a door in the back lot.’
 
@@ -1220,7 +1220,7 @@ We stood on the roof, an alcove between the top of the stairwell and the cage-co
 
 Where we stood, one could see neighboring rooftops punctuated with the dark outlines of water towers, silhouettes in gunmetal gray upon a sky that hummed a dim yellow glow. The Williamsburg Bridge columns rose stoically from the buildinged expanse, and the towers of the financial district stood taller and brighter than any other. Across Houston Street, large trucks sat silent in an empty dirt lot, fenced off, the sole silent spot in a landscape teeming with lights, noise and motion in deafening grids. Across the street behind the building, a crowd milled in front of CBGB’s.
 
-We talked a bit more, but The Captain had a meeting he needed to get to, and I was exhausted after having developed a habit of falling asleep at sundown while on the bike. I took another look around – beneath a sky where dark is not dark and beneath us  swirled the neon maze of the empire city, and I followed The Captain back down the darkened stairwell to an extra couch I could sleep on in the kitchen.
+We talked a bit more, but The Captain had a meeting he needed to get to, and I was exhausted after having developed a habit of falling asleep at sundown while on the bike. I took another look around – beneath a sky where dark is not dark and beneath us swirled the neon maze of the empire city, and I followed The Captain back down the darkened stairwell to an extra couch I could sleep on in the kitchen.
 
 ---
 
@@ -1244,7 +1244,7 @@ I took the plate of pasta in oil and garlic. Time was invisible in the kitchen, 
 
 Zelda told me about the building – about the plaque beside the swimming pool in the basement dated 1922, about filling the five-gallon bottles of water at Mars Bar on the corner and then bringing them through the sledgehammered entrance and up the flights of stairs to the kitchen, of the different kids and bands and parties that the summer had brought, and the occasional police raids and the habit of having to peer through the triangular cuts in the boarded up windows before leaving the building to see that there wasn’t a construction crew in the lot at the moment. And in these words were held an energy that bled through the subtle quiver of knowing lips and brushfire eyes, that in her tone one could grasp the excitement in all of this. That there was an upheaval in the blurred lines where order ended and this pirated utopia began, and at the moment, Bowery Manor was only one of a couple recently-started punk squats in the city, and that there was an active contingent of kids who were looking for other vacant buildings that could be turned into occupied spaces for living, for hosting bands and travelers, for cooking dumpstered and shoplifted food into meals for others in the city for whom capitalism had thrust into situations of need. Others who were holding regular meetings with squatters in the city who had successfully been granted ownership of their own squatted buildings in the past.
 
-She told me of her love for the city, telling me she could not imagine living away from a place where behind a thousand closed doors, at any given moment, there were undoubtedly acts and transactions going on that defy the definitions of perverse and insane. Where one’s excess would not exact a breath of surprise from a population where spectacle and eccentricity is the norm.
+She told me of her love for the city, telling me she could not imagine living away from a place where behind a thousand closed doors, at any given moment, there were undoubtedly acts and transactions going on that surpass the definitions of perverse and insane. Where one’s excess would not exact a breath of surprise from a population where spectacle and eccentricity is the norm.
 
 When her phone rang, she made plans with the voice on the other end to meet at 2am.
 
@@ -1346,7 +1346,7 @@ We pull into a rest stop, the lone development in this sparse corner of the stat
 
 ---
 
-There is no romance to this rain. No lights that illuminate the falling spears, nor puddles that reflect the world in its shallow pool. Here the rain is hardly visible, but for the branches of trees sagging with its weight or the leaves that rest flatly upon the ground, heavy with wet and unresponsive to the storm wind. This rain is best felt with eyes closed. The sporadic hum of the highway some distance off, us seeking what shelter we can find beneath some trees and a makeshift roof. This wetness is our shelter. The only visible sight the trees around us. Not their features, only their silhouettes, as the shade of evening autumn sky fades closer and closer to that of the surrounding forest. I imagine only a few steps from us, the wild morels coming alive on nights like this, the goldfinches nestled tightly together in high-up nests, though darkness renders these as distant fictions, and my thoughts return to the cold wind that blows across my face and that wetness that hangs heavy in my hair. And with confined limbs and restless discomfort I drift to sleep.
+There is no romance to this rain. No lights that illuminate the falling spears, nor puddles that reflect the world in its shallow pool. Here the rain is hardly visible, but for the branches of trees sagging with its weight or the leaves that rest flatly upon the ground, heavy with wet and unresponsive to the storm wind. This rain is best felt with eyes closed. The sporadic hum of the highway some distance off, us seeking what shelter we can find beneath some trees and a makeshift roof. This wetness is our shelter. The only visible sight are the trees around us. Not their features, only their silhouettes, as the shade of evening autumn sky fades closer and closer to that of the surrounding forest. I imagine only a few steps from us, the wild morels coming alive on nights like this, the goldfinches nestled tightly together in high-up nests, though darkness renders these as distant fictions, and my thoughts return to the cold wind that blows across my face and that wetness that hangs heavy in my hair. And with confined limbs and restless discomfort I drift to sleep.
 
 ---
 
@@ -1434,7 +1434,7 @@ The sushi dumpster at closing time, the meeting spot each night for those who fi
 
 ‘It’s not a dumpster, it’s an event.’
 
-A while after closing, the workers would bring out their trash to lay on the curb, and then hand out bags of the sushi rolls and wraps that had not sold, always thoughtfully kept separate from the actual trash and nicely bagged. While we ate, kids wandered up two, three, six at a time. A nightly gang of squatters, punk kids and assorted others who would set off on the restaurants, bagel shops, and health food stores concentrated in this part of lower Manhattan.
+A while after closing, the workers would bring out their trash to lay on the curb, and then hand out bags of the sushi rolls and wraps that had not sold, always thoughtfully kept separate from the actual trash and nicely bagged. While we ate, kids wandered up two, three, six at a time. A nightly gang of squatters, punk kids and assorted others who would set off on the curbside garbage bags of restaurants, bagel shops, and health food stores concentrated in this part of lower Manhattan.
 
 One grocery store had set out several crates full of ice cream, which upon digging through provided a few cartons of soy ice cream – still frozen. By now we were accompanied by a shopping cart that Holden kept padlocked to the street by day, but now had a radio blasting pop punk while he pushed its contents of fruit, vegetables, pizza, pastries, and electronics that had been scavenged during the evening’s walk.
 
