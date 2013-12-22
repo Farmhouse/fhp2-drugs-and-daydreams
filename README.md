@@ -1496,7 +1496,7 @@ I open my eyes. Sleep is light when you risk arrest for it.
 
 Stars swim over half the sky, keeping watch on those not yet touched by dawn’s indulgence. Atmosphere of cobalt fade into pink. With squinted eyes and sleeved layers unable to keep the full breath of cold out, Artemis and I walk to the stone wall that separates sleeping town from salty shore and sit upon its misty ledge.
 
-Bar Harbor. Mount Desert Island. The continent’s edge.
+Bar Harbor. Mount Desert Island, Maine. The continent’s edge.
 
 At moments like this it’s easy to feel a tiny intruder stumbling accidentally upon scenes of such ungraspable grandeur. Face to face with the ocean’s infinity, as the wave of transition sweeps across the heavens, as if for a few fleeting moments the world makes visible its soul.
 
@@ -1512,7 +1512,7 @@ One string of my family traveled to this continent, leaving, only a couple gener
 
 The geological and meteoric forces that we ingest through the food that we eat, the air that we breathe, I believe it shapes us as much as any amount of nurture relationships can.
 
-I realize now that upheaval and tumult is literally the food that my family ate and the air that they breathed, that it was constantly present in the geological forces that shaped their land, in the cultural imaginations of every stop along the path of their displacement, first from having to adapt to a new country so near and so far from their own, and then see that new home change even more and their new culture swept away by a flood of urbanization. The air smelling of the tumultuous landscape ripe with ocean winds and wildfires being the oxygen that went into the lungs and blood of my childhood.
+I realize now that upheaval and tumult is literally the food that my family ate and the air that filled their lungs, that it was constantly present in the geological forces that shaped their land, in the cultural imaginations of every stop along the path of their displacement, first from having to adapt to a new country so near and so far from their own, and then see that new home change even more and their new culture swept away by a flood of urbanization. The air smelling of the tumultuous landscape ripe with ocean winds and wildfires being the oxygen that went into the lungs and blood of my childhood.
 
 I’ve been accused by those close to me of needing extremes in all facets of my life. And I know that I’m drawn to the transitional, the unstable. The autumns and dusks, the mountains and coastlines, the pursuit more than the goal, and the risks more than the temperances. But I feel that, just as the salmon keep with them their way back to the river forks of their births, somewhere inside of me is held a deep-rooted comfort in the spaces of geological and cultural upheaval. 
 
@@ -1530,7 +1530,7 @@ We leave Bar Harbor, following the road as it leaves the water’s edge and begi
 
 The road climbs into the air, until we look down upon those trees from arid heights, then descending again along granite edges of road until we’ve come back to a sandy beach. I sit on the shore and let the ocean mist blow across me.
 
-Like so much noise, we set out to find the frequencies that others tend to ignore, that convention has cast aside. Having fully embraced punk, first as a music scene, then as a scene that encouraged one to create their own set of ethics, to dream huge and make creative use of your resources to get there. Artemis climbed the rocks toward the water. Over the previous years we had cooked house meals from food that had been cast aside by the giant health food stores of our city, or from the greens and berries that grew throughout our neighborhood. We had ridden our bikes through the nights, sneaking into high school and apartment complex pools, refining our methods of looting food from chain stores and otherwise avoiding work as much as possible in order to spend our time volunteering at the infoshop. Over time, things began to change. Artemis had got a boyfriend and would dedicate more and more of her time to the gardens not only in the backyard, but now in the front as well, and discuss entering into an apprenticeship in carpentry.
+Like so much noise, we set out to find the frequencies that others tend to ignore, that convention has cast aside. Having fully embraced punk, first as a music scene, then as a scene that encouraged one to create their own set of ethics, to dream huge and make creative use of your resources to get there. Artemis climbed the rocks toward the water. Over the previous years we had cooked house meals from food that had been cast aside by the giant health food stores of our city, or from the greens and berries that grew throughout our neighborhood. We had ridden our bikes through the nights, sneaking into high school and apartment complex swimming pools, refining our methods of looting food from chain stores and otherwise avoiding work as much as possible in order to spend our time volunteering at the infoshop. Over time, things began to change. Artemis had got a boyfriend and would dedicate more and more of her time to the gardens not only in the backyard, but now in the front as well, and discuss entering into an apprenticeship in carpentry.
 
 I had become tired of the direction that my city was changing, feeling that the sleepy feel and inclusive scene was growing far more pretentious and exclusive, overrun by people who had no respect toward the communities and neighborhoods they were moving into and altering the character of, and I was ready to leave Portland, Oregon behind.
 
@@ -1582,7 +1582,7 @@ Walking beside him, he seemed to know everyone in that town. Greeting those he p
 
 He had approached us as we sat on that stoop, pathetic after the day’s downpour with our snacks of vegetarian chili straight from the can, and told us we were welcome to stay at his home. A moment of hesitancy. Always a moment of hesitancy. Skepticism: where fear and habit have taught to distrust until proven otherwise. We consciously wanted to avoid those traps. For a moment we wondered if this could be another one. What kind of upside down culture creates an atmosphere where a distancing instinct from others is the survival impulse over seeking bonds with those same strangers?
 
-We locked our bikes to a rack and drove with him away from the downtown and onto the backroads. His name was Aerie. He told us that he had been in the navy years ago, and now builds ships.
+We locked our bikes to a rack and drove with him away from the downtown area and onto the backroads. His name was Aerie. He told us that he had been in the navy years ago, and now builds ships.
 
 ‘This town really took off during World War II. At the time we manufactured more destroyers here than were manufactured in all of Japan. About one every two weeks. The docks were working 24/7.’ And now? I asked.
 
@@ -1590,7 +1590,7 @@ We locked our bikes to a rack and drove with him away from the downtown and onto
 
 He told us that he and his wife, Celeste, had crossed the country on motorcycles, and were helped by the kindness of strangers. Since then, he and his wife have taken every opportunity to offer their own help to those who might need it.
 
-His home was nestled into the woods, a view of the ocean through the trees. He and his wife had plans that evening to cook a dinner for their daughter and her partner, and for his wife’s aunt who was visiting from Baltimore. His wife immediately hugged us. She would be happy to add some veggie burgers to the meal.
+His home was nestled into the woods, a view of the ocean through the trees. He and his wife had plans that evening to cook a dinner for their daughter and her partner, and for his wife’s aunt who was visiting from Baltimore. His wife immediately hugged us and said she would be happy to add some veggie burgers to the meal.
 
 The bedroom we’re led to is full of Naval awards, college degrees, shipbuilding honors, and books. Books on gardening, several F. Scott Fitzgerald volumes, books on feminism, a collection of books about several different religions and spiritualities.
 
@@ -1620,7 +1620,7 @@ Like the swelling sea, with its surface of white crests, peaking simultaneously,
 
 The mind is free to wander – to daydream scenarios and conversations, to reconstruct the past and make wishes for the future. 
 
-And the climbs, the blood rushes your heartbeat to the ends of fingertips, and the drops, where the wind blows intensity into your lungs and back out watery eyes. And your bike nearly an appendage to be exercised as any other limbs that carry you through the fields.
+And the climbs, the blood rushes your heartbeat to the tips of fingers, and the drops, where the wind blows intensity into your lungs and back out watery eyes. And your bike nearly an appendage to be exercised as any other limbs that carry you through the fields.
 
 The past another lifetime, the elements all in reach and the endless array of directions on the road ahead, simply, what is.
 
@@ -1678,7 +1678,7 @@ Only the uncontrollable is constant.
 
 > >
 
-When we woke up it was 2pm. My face reflected in her eyes. Her lips soft now. Manhattan echoed from below, hung in the hot seamy air that breezed through the room, causing the large still elevator cables to creak in the shaft below the grate. We had cast the sheets aside. Out on the roof, beyond the moat, the sunlight wavered off of black tarpaper. Slowly we got up, thumbed away the heat from each others’ faces, found our clothes, and went downstairs for a breakfast of dumpstered tofutti ice cream.
+When we woke up it was 2pm. My face reflected in her eyes. Her lips soft now. Manhattan echoed from below, hung in the hot seamy air that breezed through the room, causing the large still elevator cables to creak in the shaft below the grate. We had cast the sheets aside. Out on the roof, beyond the moat, the sunlight wavered off of black tarpaper. Slowly we got up, thumbed away the heat from each others’ faces, found our clothes, and went downstairs for a breakfast of dumpstered Tofutti ice cream.
 
 > >
 
@@ -1686,9 +1686,7 @@ With whom do we identify?
 
 I may say that I love the sea, the wild bison, the rivers whose waters I’ve spent days floating on and whose banks I’ve spent nights lying in, eerily amazed at my own insignificances reflected in the vast skies above. But would I defend them as unflinchingly and vigorously as I would a family member or anyone else who I loved?
 
-The language I speak is weighted with the baggage of not merely human-centric thought, but urban-centric thought. As if civilization, industrialism, interaction
-
-mediated by machines, the freer and greater flow of economies are all not only to be accepted, but promoted, believed in as progressive movement, equated with well- being and accomplishment.
+The language I speak is weighted with the baggage of not merely human-centric thought, but urban-centric thought. As if civilization, industrialism, interaction mediated by machines, the freer and greater flow of economies are all not only to be accepted, but promoted, believed in as progressive movement, equated with well-being and accomplishment.
 
 But, once again, I wonder where that mutually enriching relationship is that my friend spoke of that night. How much of urbanism, of economies, of something so basic as the gathering and preparing of food, occurs in a way that benefits, rather than exploits, those other communities with whom we share the world with? Is it fair to refer to these separate species, forests, bodies of water as *other* communities? Or is that revealing our perceived independence from what, in total, forms what simply is *our* community .
 
@@ -1706,7 +1704,7 @@ This is the response from anyone who champions this idea that equates economic p
 
 > >
 
-The pounding echoed up the elevator shaft and into my room. Strange, but rarely was there not some strange sound or ambient occurrence emanating from the invisible mazes of Bowery Manor if one remained quiet within its walls. I wondered what in the building someone would be hammering. But the pounding was persistent, growing even harder, and I realized that someone was trying to get in from outside.
+The loud pounding echoed up the elevator shaft and into my room. Strange, but rarely was there not some odd sound or ambient occurrence emanating from the invisible mazes of Bowery Manor if one remained quiet within its walls. I wondered what in the building someone would be hammering. But the pounding was persistent, growing even harder, and I realized that someone was trying to get in from outside.
 
 I rushed down the ladder from the crown, jumping over the rooftop moat, and hurried down the stairs to the lower floor, until I stood atop the first set of steps, watching the empty beer bottles that rest atop the steel beam buttress wedged between the rollgate and the inside stairs rattle and move slightly with each deafening hit against the other side of the gate. On the other side, voices speaking to each other between hits. Though the rollgate didn’t open up to the street, but to the hallway of an adjoined apartment building. It wasn’t likely these were some kids or junkies just trying to get into an abandoned building. Whoever it was was obviously pretty intent on getting inside the squat.
 
