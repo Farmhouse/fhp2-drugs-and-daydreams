@@ -2382,3 +2382,4 @@ I rode my bike with that picture to the cement ruins at the river’s edge of th
 Recently I walked back by Bowery and Houston. Only the community garden, the neighboring apartment building and Mars Bar remain of the days when Bowery Manor stood in dominant sentry over the block. When I walked past, it was a new high-end condominium building and wine bar that stood where the old building once did. The ghosts, I thought, I could only hope that they were now sipping and spilling fancy bottles of wine after hours each night and jumping on 1500 thread count Egyptian cotton linens in the penthouse apartments overlooking the heart of the lower east side.
 
 I took a breath, then continued across Houston Street, and into the Whole Foods, where I picked up a snack for the afternoon, and then, ignoring lines and registers, walked back outside.
+
